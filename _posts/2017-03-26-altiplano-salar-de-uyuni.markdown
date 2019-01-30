@@ -1,0 +1,176 @@
+---
+layout: post
+title: 'Altiplano: Salar de Uyuni'
+image: https://lh3.googleusercontent.com/Ze-CHGdrxWN-kRQa7Yab-sNqMOrF0Qj5OykrAKu-ZTSOJFxfYnd12couY1whn2YDrrgXZeTxlMkkla2GRwJjLN5ZtKxQUgLgNY0R5EwmUtAhhtry0cpV88UgTNWErBcD6QvcGsDgQx3cOi-dy-_90JlfGasWb_nqMW41CzjDduFwltHbikFHwOpJbS5pYOMRPGlLUBSyQSymQhgImTPgwUThVK8fizFc7mHKMo62x_t8e0fud6Z6-ZpjuV28uH7CEUYzCi1cXkZ3AfOmEbcrD7I8H6efqxjIxDAZJvdQ3u9LdyeGTMW_eAep_bfj54sJ8JeDnzz60MKcKphIC7uIDArB8cMCfrOTpeg6ibMteVmJmJmb31gnV5T9PrHgk_8m4T1mF3stoIMa2CcQ32LIs6-onEa1THfKWcsSkm-gwR9xaYxWBRqM57ftKpppvq59aNDo606fiMFRBZg26JcCphuNUVQx3n7xdT45eIYKuV1rTncO_yL3ogwMERDTunkvShcv2-VSsOlLgIt92bHPzkuQ_-re37lYJIl_7GNnDhtqjLwHiLuHpvR55t0EfVU30dlK5gDJvJ_5DCXiWTbgvEIo0W8C35EADblS01-7Lcgfi9xWfL8YgUqK12faH9iyQEyqVU6qjkG1tHNjCp7K5VWhFteUclWWOxg=w1467-h974-no
+date: '2017-03-26 13:09:45'
+tags:
+- south-america
+---
+
+##Original plan
+
+I had hoped to visit Potosí, the legendary silver mountain town on my visit to Bolivia along with a few other minor sights.
+
+<iframe src="https://www.google.com/maps/d/embed?mid=12jyj3jF8PDL-E45Y_l96q5aQhIU" width="640" height="480"></iframe>
+
+###Why Potosí?
+
+<img src="https://i.ytimg.com/vi/6Xp5H6zQbME/maxresdefault.jpg"/>[Credits](https://www.youtube.com/watch?v=6Xp5H6zQbME)
+
+It's now a UNESCO Heritage city and preserves many of the Colonial-era architecture from its heyday of the 1600s when it was the world's largest Silver mine.
+
+<img src="https://1.bp.blogspot.com/-cNCE3l781UQ/U_Ao-eToRsI/AAAAAAAABzU/cnzLR4KqJmM/s1600/Sketch%2Bof%2BCerro%2Bde%2BPotosi%2B1553.jpg"/>[Credits](https://searchinginhistory.blogspot.sg/2014/08/potosi-mine-that-changed-world.html)
+
+The city got its name from the mountain *Cerro Potosí* which dominates the city skyline. It was this mountain where it was said to have been [discovered by a native worker](https://searchinginhistory.blogspot.sg/2014/08/potosi-mine-that-changed-world.html):
+
+>The discovery of wealth of Potosí was made by revenge to a neighbor. In 1540’s a native worker of the Porco silver Mines, named Hualpa (Gualpa) travelled with pacts of llamas carrying supplies to the mines. During their pass to Potosi, one of the llamas went out of the line and climb up the steep slopes of Cerro Potosi. Hualpa immeadiately followed the llama to get it back with the pack. To climb up the rugged terrain he held onto the quinuas. However, one of the quinua he held was suddenly uprooted. As the plant was pulled out of the soil, it revealed ores of silver. Working as a miner, Hualpa had a good eye for silver. Upon his return to the nearest town, he checked the grade of the silver. Upon closer inspection, it showed that the silver ore was of high quality and thus, highly valuable.
+
+The city is only a shadow of its former size but holds a good collection of museums, most notably the [old imperial mint](https://www.tripadvisor.com.sg/Attraction_Review-g295431-d318885-Reviews-Casa_Nacional_de_la_Moneda-Potosi_Potosi_Department.html) where you can inspect the coinage that originated from this town and spread throughout the Americas, Europe and as far away as Ming China.
+
+The city declined with the [exhaustion of the silver veins in the late 1600s but was larger than london at its height of prosperity.](http://www.theguardian.com/cities/2016/mar/21/story-of-cities-6-potosi-bolivia-peru-inca-first-city-capitalism)
+
+##Transport difficulties
+
+One of the major hurdles I faced on planning the Bolivian leg of the trip was the shortage of reliable public transport and rather costly hired cars. Uyuni to Potosi would be long drive (**4 hours one way**) and a visit to Potosi would most entirely consume a whole day which wasn't feasible given our schedule (Macchu Picchu tickets had to be booked in advance and could not be re-scheduled). Infrastructure was *probably the poorest* I'd seen on this trip with Bolivia trailing behind the Chile, Argentina and even Peru (which probably understands the significance of tourism and invests in better roads). All things considered I decided to drop plans to visit East Bolivia and focus on the Salar de Uyuni.
+
+##The tour
+
+The salt flat tour started after lunch and given there wasn't much else nearby to explore (The hotel was surrounded by desert & salt flats), we decided to relax a bit and explore the hotel further.
+
+The hotel had its own tour operator onsite and we thought it more convenient to make the arrangement through the hotel than make the 30 minute drive to Uyuni town to lookup packages.
+
+<img src="https://lh3.googleusercontent.com/H-isJd7FyfdkxtHnsL3xmicbP3zj-YxxysetuJxx9j4ppFPFjZJYbBEJvCMcHLxKx6dVeY8qfu4QTFrBIR_1-339GsYAblgCn1q3-39xJ2NUTvweVXOUDfOEpoRP9aN5WFsgpXFiciyvKhK-BrmF6CiuD_ta0QTm1TVHnuHRk8Y1IHruVpu1-_4LjGHHpo8mLB6JfDypzY2tRGeG9C6DLYR34dRnrQ6xWcSS0HUPnyny-urpcjUk5plV1-1dSsSS2FbEotWiheCa6gD1Mf5E5B2UoxkN0cSi-M5jeD0TkOcmmOJgDnf5ninfXdHhVbe55UOJgtRTy-WsheN0WMaXWPhlF71tEYKt4i7gA1mKe9zTCBYrnwEpQbDNy2Iu4UROitqL-1Cr2yTtXGpLouS020AOLJDzOmXaHiPzhHXnMYckVWIwFhAoEiQdhbzwynG2brkuz0-dMT4FJE2c51tMNQPhDAqHICZOKCCLCtWGw3h0Etrz0N30MNYtgZ_h0M7wVQz8YBsZjEGixSBZafmDtOqhJSW2ImBplFG225_OLoZdvv_ioC3I-2scEqOw2UZKguAekZAztStO7m-uB-HKZjoEot9-NZfy6q4S7tpKe2vICNc0sChEEw4MfhDwtC4jfD7aYnXUNHgfNhfdW1l3XpbyjplGRmyViLI=w1467-h974-no"/>
+
+While we waited for the rest of the tour group we walked about the hotel and inspecting its collection of native artwork.
+
+<img src="https://lh3.googleusercontent.com/S87pHRJJHLHVF8VTL-vR2abAlygpym6vYt4gqbLEYWf8MGOyt_j5Su0b5NtT6Tkgfo862LYi6JutIFdn0vzfGZ78rCes6BFlkd2azbPML13r726hEfKXMcujhZ8G5qahEB_wnQq7tZRA1XWgkKrqhMSktZkAQ4K8hmtUEwRImcPWZaN5b1zRpkfiEZZdeJwpa9z0l31tRONZqLTiqEWDB4CWb6UzG4HMueGm8KvaBR-BhboNROzGF3ZJITUTcA-NcaE4i3CYd5dYa5KGO2hGydz_z8GMTkjH8_7kgYoJ5qZFQsJuh9TXH2jKoKjNtKzjnLWyG308Lnv1N1ROl0BTwr9aBB4X8FnhlTG9TVCxgSDDQCEsF0t7C-ZLJDdh8Gef0Nk1f7YMtG27ELmz9-V53Ps-drGekP79DinWJA2dvzXGdiOVA7YbOY6qm2f_Fmwgbns__Wn4dOFqXnj4D_7Xzz-5Fa5qu9veAGBX3Mmnp6PwLrUGhYXlincFSKlztryowf2Yn4nJ23jIK_79G2ZVA7pJqUAqKRJibUbr2IagIiKYan6VEARSpJn2wa0V2RnaRWdTT77rARmqAQT0JWMHmg-OVjiaDk2lBzLj08bxZmQ_Tk9JhZvHqY_Hz65DZHYVYA6QnYXOV2x06kcmngArKrQnWQKu13gFzac=w718-h404-no"/>
+
+The tour group consisted of ourselves and 4 middle-aged Dutch tourists. With the group assembled our tour guide ( and driver) lead us out to the vehicle.
+
+##A dusty desert town
+
+<img src="https://lh3.googleusercontent.com/iy8pTTG0cloUheLfiKom7xye2PGTUo5QNZZajUVrFcwOECJPpKGgWXyZT7TdyeUAsEARcmG9kWUObHYBz3YfOdBktj3irZfDC57TtiljyK9suWTgdVTjJ4X_C-UyGUY_BOLAUwm8P42jYMRVQ62cuVjlv2xBph-MpRa0iArzGJNn6s7lWkptUbgHBWJ9yOKg5GqeKubEOe4NINYHzvQSgIfTw9IOH7oAi8iZvSD7UTAvxYbWxBKfBYFnfiziVqxkhzEuimtX_JYHI5gxnaMwer6VN-YUFuhXjau6coB4XG-Zsrztk4YM_4OvUB1l9U51u7PxJTtKoPU3BrSubVj-Q6XnSi7XFC6-S2UCuYyPYtUnUwjLohymSRGCce4C3c0y5ALyF8ZR87ogPXKKihqxfLusWK-pEQ0jyfabcrUVr6IVZsufVGOKl1eZSufrQUxTtbRRWGutkoa0Em4Vjtupa1t4wWRrEQ8EhBQduErr1b-_gJ2cCseCzHD8m2UIaVWGE6mUNXY7JLCL6yP2_OvyFkbthg25URAKRbUPUY_QSYvKiTOVK67wY9k6588XA06SLa7zoPH4hqM5iOGRsQ291cF2uZqZNzPRZtdsSvD665ooGolNnbdmvqel2l2fcIlcWeJP7lWqhkacZjAlhs7XbjVfrL4XPBaenfc=w1299-h974-no"/>
+
+
+Our first stop was a group of souvenir shops in the nearby native town. The shop sold native crafts and carved salt crystals though we browsed about it we found nothing of interest. The town itself was unremarkable and I wondered what the main economy was of the area apart from tourists.
+
+<img src="https://lh3.googleusercontent.com/LckPmc1f8dhi6I_RG3l7XHPSSNFDJ9BUJD4vd3PviGIqqzOJQ5VUh-Lpmf0qyzHAdFNwakZq3yDiMZ48dxBqIkQDotkepaBXQNJbw32epeGvUEKDLSCqZyyuIgVei7MK1xX6ln8flLgfQOv1SOnLts1hdjNtiif49LAOQ5e1cDKhE32oVji9f9_WLm1v_85Wcl4xJ7XV_YT7ypVor5oOPC52PUpHzQku6WtXITAuIM9z5kRxuk0_6iaZlgL2j6N07kBOXfCXqFPdQ-CBrUU3pg9X74qM7kSiMemou8PY2TeM1c9DJS6K_KSvAaG7ZVbDdAoK1AIcWoQ6dkIeGlxBnGj-yUgnV_jdXUBak--XdRKPYDxQ8L3G419jJvZtPHTs8EBMNtYernt0D7kww6ZFhhVeG3qkl8RikTi5i9iTYMAl4cvWvlrFO6ZCVcg5mwV3LFND6BdNsp10Okp5MBKc0Of_h0UHdQTVVERQLLU9oOuuPbt0ak9lWLWbwq3o0ZMnGOdviNFdbt5kRebfcdr382fX_hiqEBmy_koQwYzFa4oqmU9IAaTuUkBjQ5-CV6AMsAPitMyE6yuPzfBeJAQhwlgqot9HQuBX0pWdMheRB7ACyI4q-i2DnB3lCP_Tl0gywH0xW0VtNtM9C-i5Jme-kPm85MRJgbcAQPU=w1299-h974-no"/>
+
+##Volcanic activity
+
+<img src="https://lh3.googleusercontent.com/_KmsWfw63V9i_VT6EJutbSYEAJsdTSx4RP-X-UYC8e2aXn2EL41zNzdPp4FSvelSopyD_0toQzvy7Z7GXJ5Wg7UcphhZhHuiuBXrrt8LDB5n9wWKsvBllDRAFfS3EZpOKA1kiHsDXA9nP-XrEVEVcJpN3eHpOln8heQPj36nVzqaGGzhOzspZPAbW0Dim6ikc-wELEkbbQH5LroHXwWfZfvdr3ZM6bxigKE41itipvG_pjMNJlMC0IGETGOu5jfE2lihPyrqZnjMKSGi9kDmvdcz00-_PZ3PGewkssnAC0SDPrETQCOI5i0Au9zjDX78f9sRooiU8rNAnxbCjGrqxfCVma8IUdhX1DB22NJehRyNba1CknCe22Fd8xlKqKeTf40YwaMkEd3hwMQlOZfuG1MOaq4JvsgkLUUK3TOeQ_tbGlOLycDKq3cHLVUwuw_Mh1AVITuAsDT_KIKX7mTkgnATksq4gbBb5MesLIYfn6hODqsfoLAFGzDMMj3wDFeJXd0UfBtCNKy_KEWUahLQZ7DxG1JjrN_kRwLmPNdLBGdp-lkqhU46qAlw6H1XfRdJXFPGKqHtuI_UBNo4mvXZaRi0gv3DaqHr3106ozELcZK_4M4wUOTrl7EPok3y-3ca6JGVL3UJHpu00770Ajx1SOq4FmKfxj7-Vd8=w1467-h974-no">
+
+The next stop was a ochre red coloured pool of water that appeared to be bubbling. The guide knew limited English but was able to convey that this was caused by underground volcanic activity in the area which created natural hot springs such as these ones. The red colour probably was due to mineral salts much like the Colourful lakes of the Chile/Bolivian border.
+
+<img src="https://lh3.googleusercontent.com/RRrM9987_5MyoTpeXmnNtT1_9SEjPvk-thg-4_LhvH716BKwlJP7qNwo3YYZOhnXQ-smIHFLhRC32kjJ-YHihMVyPAngjCeX_s_h8IMadmNHCcNo5yatelZUYFToaO6zhmSdospoLRr8rT0MfbVcFFJR_oNRXpo3K64POaom_wL3VgP89VNajdFotOKJoSqrx18Rdmz0BiP4BQgt0Qu4HEliVYItaBzBlDuvQKV1DRf339ZFsLfXJmMC7xM5MsszU6m4oKMtyOKdtF-0z7DMuDtHqI_6K1hp3nA7u-FBFYYIVUtVlcPcA1IQm8N_XgjlooUXmKt7dkTfsN8AoSAJIsh5urs54fGQ6hUEuLdzYSS7TjzqcJLTdQRHdCwsoWNNWkktBvulbMvCsC_uSdxbjRqzs2Ndv6MbTlbA1VUbgeMDPpHyfuAXfz3ta6axOTqt1ubmKeJ8b29tqbYkv5pikXKqCeJyjQ7Usk10t2gXKxwVKW8VEJWfsNd2rqlnNYivbjHxqPBS8EGw8ijaYwrrTLL7o3wIEZuyOj04rKUhZAh2NePjHE7VCzq-mHDAScIBuzRqmoeZxQ9NiljUnZxKM1lNdOz333_SHTxgKikOJcO9w2P087rNy1FfjpWN5fURlMnIguol5Zv4NquVfCy31jmuuENiww6pLFE=w1560-h343-no"/>
+
+We also noted a slab of salt, similar to the building blocks used to build the Salt Hotel we were staying at.
+
+<img src="https://lh3.googleusercontent.com/z14QvEY6TyIF3tMWcl8mJZAaiRj9_ZNgJ5KU2NJ405Sip0uS0nP2D462YciA4pYiOfd6cb8ThQXExEs2MyI7ljj0PK_o-NscnBitVemBB4KBqlFdPSysHwIxgMi0G0wLDaT2bHGOzICVbdM88HJtAekUyd_Vo9DHpMU05GJR-9X-egDw135FWX5TOJ8fsbll5rMu-0DlPB7KXk7Ennk4lU4GB3sPjzzReeIhF8XArxt1Ph8vzPi9R_223XjEJXRSTfvsv0nTuIVZ1wUloqAgpQxLxyxG9zgcv4qloOYEToVWsckI15Q2mEZt1PvzYD8B6_8AubRa5wuJDt9uNbPvzbb2mSYyn8bF55SoWdBZnTzo4lO5v2W_i-4lpEWc4fcx6knPjqe1iiCvoXcxzdCte9da9paQIVfBRrjGr7R5SICTmZYJuDjXIAxPvmoJ7Rd3p7GrJXQiCwlR4TaJKM7DSfewgPB1JDlZ2qT7KU1ox9HHvb5f36yVyggXu9CO0yh66dzMk9SowoPDTYzQDdDZwIwke8-1O3ZtMcYkayNww9QyTkTyTBgacmg8N8tYItmPQ5DC0ldktZMyj7_syeG2if2cWS4F4hiGi5Bj8qfJZv1ScAHVs5GFf0SqEapatnjBY39PDS3Ybf60XYENofonHSTT3ulv-NOWxaY=w1467-h974-no"/>
+
+##Las Salinas
+
+The scenery turned whiter as we approached the next stop, a traditional Salina (or salt mine/pit/pan).
+
+<img src="https://lh3.googleusercontent.com/mhpN-JN5WrUYRsg_X-qfM99ANo9ZqhMNdKY365ztc9V7qZydRbn7XjpG63QYIyrUIJ4vubt2pHfaWWlkZ6F2BQJ9yK8d928u7pPxNFeYL3N00NCsI5xgFJBcOhgscTPVR4Xr35TE_fBGksYTskJyId_RJKEYMJ4CbXYdc3sypPLUZTsUhZ5yUrS0PIc7i7HrKFYaf9Ga4GyGQpPiO9vBIQGFPsJyiraYE7mvxRLskXYiw4VKVabw_HbEQEiyFZ0raUrfHTq8o2DMOQIzpLokIFPMgZ6Z-womWwmpyXwGbkhk8sotDbeOtis3gZZoT0OIpFv61NCRTlvw4uA2O_thEeN3kEL-tYJWoX0rSrl1QNgCS-dch0-m-jFrmZJqyNLUUJF2gEM7EQzINYxpHqXcOdse16RbXAxh4gcRQnR1IYaJbEZ9G472F-_9axFC6YRLowrnWAtPpjrg82EK1IT5yHfmm1x7CM62Phm-ZC2sRFcme7XP7vUBeGKzlkju34ybTkENEeF2vOecpoFw2WCUZ6-VW6_8WiWjsVOZ_9AUP-38qc5uIQSZNMFgbp7KWRnP5nrMOpkI5YdCsZxmPLUedMBV7nRC5KycSlTNmljOq_8Tj2Farl9Cf2Q1nT1pHw-B_XgfhKFy8W6C3j5kA2MXUJ_EM3MxMqiEEiQ=w1467-h974-no"/>
+
+Before tourism became the staple of Uyuni, the locals mined Salt from holes in the Salt crust like these.
+
+<img src="https://lh3.googleusercontent.com/Kwb5CYqEKFffAx_Y2CSbtMtqZm-ww1nZVc_mJBS9rgROfYDLc3pBrS_gjNMPHfydjYgytsEDuvM73ShYSWQMQ2FcWlkm0adcLNxmPXdQVGHBKTYizA7H-Cwv1OxlEnV03Lro52b6NsknROq50TG3GqQgze0GQV0m0EzVm8kFG5Xx931sBp8qAKdcD_5YXFz_sdaajVBnxThLJWHle_16ce3bAaX6lcyLAY_Y6FIoQSUxZ71LoIVSbmAGLIO-FRY7C1Rb4Y9StquCIubtuwnAbssQJ6j53sCL8T5coGpwJvTZR6q1MUy7iN74Wls55ThtLdnhzF3TvaAmbKx03IsDbXor3449iY01TZS58ajBzavXoPEKnrIbAw07qv0lrBkr2HQrMHe4z_uGu4r0hdCCjveMvF6Vxh3BVibnNR9q6KjknK0IdUUqGCegdw5DW-BV-Z78wTpY1B-8RoinrBgWDiw26Fbp4JxYjuGioo9UdrrPhWsn6LSxMOjTV9GsdgzuB-UvOc2jTBuvCaQ_d168qFmX6IuTO1hk8KpZl-g9hp51eMpdfxRak0XwK4eftxB00oHI4M04VhvaT6bhOm6S1ZANWhA6VQtVDlY_hrN_I-v6o3hSMvD3CGToxZacw6GIl9PKg0AdOA1dU35RE7g3jabZeRKDaj6EyUs=w548-h974-no"/>
+
+These holes reminded me of the holes in ice that natives of the Artic would drill to fish with hooks & lines. And you could see the very salty water beneath the salt-plain.
+
+The guide indicated that mining from these Salinas would as straight forward as scooping out the large salt crystals, that encrusted the hole by hand. This simple technique was practiced by the locals in the years before tourists flocked on this remote town.
+
+<img src="https://lh3.googleusercontent.com/9c3-bvCIbDx8OJFLF0jn_BK7HKIP5AhEvpDDBl_y8guG98BJo8mJwLJQSH3NwdY4rkl_7cgRu9L1WSXPgyHyuq1i365MXuLps8ynDa88P8AZGMYNZx6u5GLf7lBf6b8IwehL9H102J9wuoxuJCGzsIwn15X-nIBKFjYWxT4fKOlW52snQ6KV_AiBLa-3VScFZZOeGWr1GzkLNNJ8j-pRTlrWdPAbd_dczTgg1glk8zkYKwXODsXXxGbe6tMrX4WUz5k7IUpdwUCv2hn9JdXg6leIMf7C0IHDbU2MPmxRFJvPjIOIN3c696q6WX-9BUETkw2GdUiLI2gYtvPXTOwnD8pEAcg6WJNhph5fk-p7dt5_D7vAgA4GbI3I5-qNpkyBTYDQYeQNlHZt0dGOvsFzgkfRicg-uVBe-_O3CNWcOHxS45V3aWpjGbI-FcDX01hDMb6oow0hjIVuEIweexR9Adfuu_YCOYDrok8I_6OONBj1kJbM9kCJ82XF-Wgp37TLhwfzcXkss0eKARrKUXFytB7u0JDRKPOkhob5BvOSIDInmCoSmPLQ9wqo6C4r8kSYBUJB9-HxOXDrUC4td57SdTDNXShSQci9tJm7ZtMxx_-C6vD9iviRH43k3ur6xI3Hn20Qa06AcflDQpmkLFNPZKFbvHx0ZaxzG0o=w1560-h878-no"/>
+
+##Salt Flats
+
+<img src="https://lh3.googleusercontent.com/eZsAz2o00UNHuCHDVmj8LJinDZf-aHLuhhaN_805Y3NgPyMfth47_WZcELjvQkmKKW8_Cx7tUx3DTi2zztlfbleiRV9LEznAh53lfEtw5tl-ch_8O61P4kcrlHXbYGi73AWzbYlO56_zeHTxIM53XTaQFhMKOTowpRf5wcoXqbTYG-9hu5D4Q91wohP50ivhoVAHhXayyfbR3AoRWIBZLcmPnXLQDFkQ0j3Av1cGYMtM2Tu4Lf-uDloow5n2Fyfd6kiCMHxYxTu6QcULXwB6_lV-OEHJAP8WLqKWOlcvdCLOvR6IbO_36xMXiedEPusFNjIue1Ih-VOAGBrJkCCEu2Vut5tmJq0iPsHmHBAlAZ8CrCsC5AXXWt9Bo4TYur9jW6IKKQzx27W8ytSyq3W9B8Fvw_ce4PZWEXywhqGBkVi-tIFxiToIeN7VQQ-yI_uWAKkZFanaqG23SKt0dyy4OD-8uEfnNWCmD34BvXFlAwkow_QEBu-XTBMgicmOQ5bhPwpshxd8VLPPRDZkK-tu7e6P1rjsi5lRRPqioT57RRf9irJZfBYIUr9d7YjuqHEDCqVO8BMp-3VGccX4eZPlB5gxHX1m8Pic4aoT57cxa1MAnD8pQC2F5pTD1qUph2voWttGhDmwrAtPGJco_aDbeQkl36dK_hLf1nU=w1560-h883-no"/>
+
+We finally reached an area of flat white expanse and got about taking in the panoramic views.
+
+<img src="https://lh3.googleusercontent.com/hCA1-aaxV2Fx5OjG2sDybIw2VJM8mCPk_KVsBAgRVb62potgDX3D3kYEA7OvH6Q0K9Z5ViNWwlQMcAisG0B4GcYKLS2ZcaqrROOjtTAmZJkZBaSMgVhSBXvz2RJfb6F4VF7aCqOD9KBL8G-AoE0bg8if53SlMdJMVGrLaQkiDX6XoPKcTERL7Y11n44t6FRTPBsYAvIpa6FGfAi9VQH82Wk3F8NMzFfCvOk6pym3H71b3SFgE9h5sxpyg5mS6WfLruOYeHtLekIK4RQl98HXWU8ojP8Fv3hrWjQcBms77Kc_V24CKFSryBGAMFj4eWz2DOzPTyPLcaqHlC3Fs7Sc1CvQnblTD6axv9Kr8uHawl6GudzGkZ277NQaA4WadvbfHNMjGqgFCTgQlI70n3iVb_FGGoM9vtetHGFcYgSi7EblG5Y8RhNA0odhYCuj11tN3DX6LCq5gNTU7dB5pGQxlQp0h_zkCpzJoXAWaBbCWHcnER9gC7sUnVqjf18MGs3fDU4NcyQLYlb4ko8_WhsPJTDWwGF16uCueaXjGVvyljkq_ukl6uYpnzjuCrTIVI-wYrcFzJV1qjPWsLL0dE5Xskx1EFsenbi13lmJPmFacid3y2zybyN1nV71ZDhQXFt8KYE6mLG6ui7Y_OOm6LJCB38wxqWwh6K9h2Q=w1560-h343-no"/>
+
+<img src="https://lh3.googleusercontent.com/Khk1ojg5eD0eiZzQSjtezbQqYfFHYNB_O4kkesLUw2Rfjqq7EwUIdMVJQB1aD8jYEEjAHGGkbKpIsFPUvPw7gVFzfU5135C4lBgzrn5miN2K4aPKKGJxRA-IAxrh1XAj4Dl68jGlK6tX7SbtQ2QXhYqOqKJq_eQrghLGW0E584wc0u5UoBwo5W7CRwknoRGe5L8nkQWX_J4z9-avyRmWd0F94X_T8eGuRi2yPmbQwld4gAGqMHfH-lwlPf3ErYUwZAz63vKtgqDxsqJws6GTgF4zmEzqDQJK0SfcllI_MTGGbpZvm6M_bH7I27yKRVjVbR0CJYVxrrVw-l0Gz3NiZOtXCXZt6w76WtCaTM_ZkeNCPOQA8PIFtMW_M5_sjwMZ8ZeEpIitvKtsmkw2J8y_fhXz2Ki7IQanH83mwlf2C7RY5NNX_sjjgMZ_CkEoszwlA8RmRMzW7Heyijpfzu2XUwuLf61enMWcgIpk0Nfl-pHPbT-_AMku1thyB_zPNDx1yQlipPw1gcNIp9sCvhoYVJb0GWZ8JW3e0Iw_2DDfWaq1muEib0G_9KKvgzWbVWEhf8gm9L9N-lJMOa5pGyH1OfqmudR-mCYEJgnj6ZBbS8h5hfMX_w3zx9Rcd1KrhGWguskpNrrfAiI5xqPeVDx8Fw2SYPyssOiWEW4=w1560-h883-no"/>
+
+<img src="https://lh3.googleusercontent.com/XGbzXspOO6wNfTyEsnyLtEGwXZSOSrOHjGAlFOjiR6uY1YH7mNMG46iwlAnC1MH34Fz1ObP3RrdY5uGASvWDbXAoD_ZV2oLDcc9De6owpiDjzo2z-QYsB9lbGX_Kgc-ikOsefpLeZ2-Dlrj2gSx5Ju5XHk8jyXqbRdVxmfHYce6-d6t4-90qAPjCCAPh9FplG8w0gpAlZzXsYzUHkWRGVeqWjSM_jpepg0ritDO5lqUtxvoyyI7jo5Ia3DH9toD7MS-Nm7CLyHXjFcSG_AxIW-zriZYFLWBYa8IHAGEppzvWcY49nhoMiOAXn1BzArbovBtStXglqHxSJN49oP7D4HXKjMai-IhKL5Cml8Bm1ubGQ99lWxWll91De9IpCnqAv_w8OK0PFIUBdJVjd5yWYEnEhjST7QGFQU6p9e9VjMVtLxPji2sVeiXp2m1UPbWOOMkO-BX3-5xmTMAJSiHdJZQnFBetOmDqVdsc4QyiNF2trrro8KHjfF3buR3RMP59V9DoiYqo9PNozGl7DrOvs4RgKuJlXp5g3Fy0j9-TcrbFRke1UPTLaaX2Y72J-Z22XA-rB_2sLV3tydyNQA2-S2UiUsKKzlNfGWxxxlTatn495ygJMDljCl09lIrj6jC-kYYf9XCDwpPMd3pnjVontY48OVeX3f45seI=w548-h974-no"/>
+
+##Isla Inka
+
+<img src="https://lh3.googleusercontent.com/mbYKANwt4iWJB3hiso_9Dr1_X0C2PNmzXAgmAkbDSslBkojQl05N8Fsfk1_IqeFjwDXXcggBAh3MLSaxl0tnQx2-uK2awQJeDPIiMlPuCd5tYZPd99la0HoMe-IDVYToyMIOxkETe5UNBPjXPuJiEILIIKJYsgg6_xS6Nj4VYaWPLKAAfY9ZTT1ekZoq0ZG5JCfkAmJw0tQBRKt2868sWVTZse4GvpvCgav8qYbbs0GwvCvVugiuCnDKw4DnFi-h3SSX5U_MJLcmFlCcF8s_-LWPkINdgafJcoyZb7Kk9nTEk_zckj9d3X54nsqaJcqURS10m7XZW8RA5obblNyiqNVuy3bEA1gvuxXF5M1ZTY3v6Q7HR2kUxG-fCMe7jQWhzpEzqvdQkHJLtN1GCaaXtqUOao62_DMNaHl_ZHakVnWXqlVpIggFXHmD80NLeuHLC2Rg-k0GVxvWoXh4MJWFx0nHP-fX4u-Fl8HYl3FiUxNCabz2G-8uNg9Rct7t0BV9sVqKP_S5Dn55FykxnrbfaUy1dhO3rlRC8WZ3XJiX4dER9AdDmmnPubLIssXXD0pX0MpoOX8iK-g8kJdBsd8_nrP_S3t1ci6iseEKEmPEtzee7bfob5RFS3V3tnVCPSOABReNOu7xgTS5zX1jV5ylU9NzECligqKQ7rU=w1560-h883-no"/>
+
+<img src="https://lh3.googleusercontent.com/H-6W-hVXc3Hms0b7GW4x5Wy2Vx_LfTxu8lddcr-u48RcP4GRDRLW4emigiUGsOwmNmltHW2L2geDiKGN1c5EfaeqNMhbdHZfUtGisGjl0mpOl55-o4R3w1d44aCvmhEMsT8DGDRr3MSfmLXoQXmUTiTp002f6H5d1jpRigNZ-YkEb3nGLFnCF7CybekUc4oiLTADPRCgASqPd7QWdcAP5hB3XoTvpXkQtxlPb8Qe_TpcbfwbHvqsp-w4e5yiW91M_VI5RAEmq1sAyDdG_VoZVoLLR-JJi8_7fwRaxIUC4ZwWoPhov4BK5Y-ruoNVSiKGD7LCjtj0h2NQ9Vh9cqxMBubTj9h8seQA_S8CsyncVCSEq5Pun-eEv3iMMvRf0W7Gnhe58WUutg33dL3euNzrckgSlAMtjhkxKZieOINonTKrWkZhI3PYdF-8Ub3byqpgHIs4SbJnr5fsGoNUcfL0q-vrk6J4yAqf2vo-i_w0HeA9aCf6osFGKasqx4ZK9XyOotoD_5DW24LKnauXgrgTWR2eugIffonn8XpaM2RBmZMQq86lMiLQvZgjH-56cquu7Wz7xNk72PoRa8fvnd3HNfGXWTyasqP2FwUE0g5rt4GDOxivmcVo6hjz_RpuaUeIKd0lRBXbgpP0KmlYj7rOACt7-m6NvJuB_JY=w1560-h883-no"/>
+
+If the salt flats represent an ocean then the `Islands` of Inka & Pecardo are the few landmasses capable of supporting life, in this case Giant cacti. 
+
+<img src="https://lh3.googleusercontent.com/ZJOy17L_wWPp3Brf3qX9OndU8dc2hJtz9vjZ1Do-COzHWpasCSkso3qmQfau2nY0GwUn1R3WK7TCpx_xml0lvNJv4ssjlFDRimBUWSeJtuU_x7ipYOUxdIV-dUXSViTZE4GOYdIBl-EnKyuE5IVEPWlZ1L_c1AirvAQcPtmEFTfDRYOvrH1JxQvcvmqct75OVGkfnD_Vk6HZxxX6CQp47ZCLWusJZ1tQi0gxBi5-nUSI4KS4ik-eNHGTUktt2YlJ_4dxKH9n1UUpoD3aGCQAmGzyD27HZH_g6i6vjj27hEK5HKHtMek2qhQHsPIF4qsI7mDBEO5iirC76sG08haqk3u0yyas8cRlkUbcM0ECvL9RmX0LcaPf3rKh-4T2YGzXK1EPwGte-KQitPCDkdhyNEyc3DHOWwvyCrY1IQxzV0kc-RshhyHFMgiobBscyW0SWSw1c1jqwtvMV2ClCmgx-E71VU0jWDbpMLqxfuGe-feB__OvV6vv_KmYfeFKAyrCvTVHHIdrADdK43uXgELXNJ4j1MgzvWnO4mMSt_cas__y9WIYV5W7vGEG8l-5uSdNHXauqDl9xbLwkXGo-cMGHwqSzQ50HenFpOU6nBXrjh1hyEmJr3NCmibsliRW27IeFPTW9YV9TtdIjZLniOjbQqhjBVk1sSt3Gr8=w647-h974-no"/>
+
+###Health & Safety
+An incident at this tourist site indicated to us that tourism hadn't quite matured in this part of Bolivia. This site wasn't too kind on the less rugged traveller and a French tourist had hit her head while climbing to the summit of the island. She was brought down by some of the tourists while others asked about for first aid. The few staff present on the sight was clearly local villages just tasked with cleaning the area and collecting ticket revenues. When asked for a First Aid kit the ticket clerk simply paused for a bit and replied:
+
+>Ticket?
+
+With some dialog he finally mustered the effort to go about looking for a first aid kit , after issuing us with tickets. This lacklustre display of Safety did not bode well for the hiking trail.
+
+###A Trail of Rubble
+
+After snapping some photos of the Resident Llama.
+
+<img src="https://lh3.googleusercontent.com/K_WjaL6HTcIlrco9TOh7TbVmQTc-7qB_Tc9kEQ0_fA0PG_fMliHx02pnJM2hvRML7qDuuDPuvZkzpTtXypHPGCwfdZDdFmGkA86bdpt2o1GV45_rmagSIyR4zQLM6GxEdCfw08eeGK8WSzkTNRuhz6t5InBzDavZUE1Jjw6W1mRFEGPscivj3HbGrC2am_Y5ltY1fJYkBqa4AYdMueozl1KLPgbDf6uteqQAs3wtw48xXcFsMmOjLBSpiQF4_XHkw-HjYWEi1FmhIPWRC5bmu76j3BAu-v7j0D0ezM5A6TVFdltZgxZcu1CR6PiCOdPTlYWG9P2RdxFKmMAnCWEaMJzzbhiASeAHFXN7Kgcm18EXzad0xPnBwC5zowP5sXqi3ivGTaCn98jGy-mWcDe4ocJ2mHOh35ZZFpP38y38ZrwK08ojbqVNuNaOGECTdfChabcsfScY4TPCbS51PfydhC8ckUzdHNWcqeoAA-g_3_RVcRkgwjcxlQMv1JneBqoFZUxWSBuCjgK2ipFFW0eOHUg9fll77afG5CF0V1WpyFMGpwthFQwnAqpv0z904Qxra6QuwLRAJwdRzBqrnMURxHjrDxjZ44psLxEg7hc7acOYsLL0CbCdrVQ6F4e8LpFoJRp_7gLDSZDaW7dAnVc_uCqsXbl92JS-Wrs=w1560-h883-no"/>
+
+We started hiking up the only marked trail on the island. The directions weren't too clear and tourists were climbing on both ends of the trail.
+
+<img src="https://lh3.googleusercontent.com/mMuci5cYHIGnSJ_8g6gVdqm9QU7FiQyI5r47bIHw6fBiJ35PzPoq_yUbigLlLvJmpAJoznYUUJhlVx1E0RlRYmxr15pZxCY6ihJB1Bz8-BpKN9nAgZXzoGVpel_lbe9jiVOQPF0mofiOEJLAo7_9LrnDqvqyom1O3t2LVbB4HZgOvlY_UcBQPVTQFn9QXUMHaf024aN4i1dH5XC_8QD05jnUTyiAZXHnc0CVW1X-yD0sdTQ4u3-WOc45hN8ihTqCRz3KWAYxyzFzYPIr-Viz2cqPlUjuzq8kkyf8yNfgJRNcCXlcnBNxpiHutdwONdI--L92q6PYjX-4WhSugRaEAS2Tzu9Exdd0n5hZ67Ga4LkcH44vxK7hhpckk0mZYg3ZMyndEp11aY3oTl1p1F6A2Le0xU87wvcTQ4udHYTDK6HJ7zWXhMKO7soNMAxaQs90G-hhDNaot5pUkD2jFcHNYThff4HMbkskYudthfh6WEzSOXqubrN6szhAc0IJNXzZlnYNlowpNCDCD5MQMyizzl3xryd2IKgMJrHbb4iuhM97Ky-yJmIgPqrFGdr_kbvdX2VD3DCpd6kCcprMR4OIRKKmKzJLylDSRIE9SSV2mUNsCq-PCp0DkbXOVw2weif1giyEIByQkf9SN6liP2LuJMF3485UgsHPAR0=w1560-h878-no"/>
+
+The sole vegetation on the island comprised of Cacti and some short shrubs.
+
+Needless to say that shade was limited on this hike. Though the cold Altiplano winds kept us chilled despite the near-clear sunny skies.
+
+<img src="https://lh3.googleusercontent.com/o1sYZhvySXGgQS8AVbJXEfeBYfpHHcXzryI1kQYdx0giuAk9ea3o9jyNGLDouzQIjrFIjIlVu1RDh5UQ0z6kWxX2_Io-rqG1vEzFNUoBTtaYOY9RsR-3TENb3sRiV18HpAlFEHieVqfPpe2FsQkkp4K28_5ocRwP1DsNQp19PmL-ZD8xY6wia1q-ZRiTBzDQqIkmMOIo5bsrQYrH1PwLeUBdvi_xu27LZg7SWtDgXJfGFxjAwHsaLe4lYca8fu8LyUOI2J_V3unBX9TodORJKiUtJahr6QomF1nmeOdWjup_NSgBDUAeVoClCgJBqU7JYSr0UkKfbIYLRLgMtfXzMxwQ9ktwbhEi1kclepebTRrALPetzosWOh62db2CK2mvD_tRuIR05HaGMwJnx9rBqqgKf-FQWfsxrn8Kx3A44_TZTwHBAT6NQ9MATOewtVSeRtCBfjdKUdlOi4zb3PArnm9_RBZilqsNw7jzWrWKLY20oCV53EmfUPX3FFtB4myqvwjjIW2XjVuqRseDqdC8Clv6VBej5a6wQmT1jjpcXFVBX9rX8X6ASsYYruqMFZ2STE4nBubOuwU95eULxN3ePEibUiNdG3M0dtjnJA-DNtEI3pSvawWSGBXX4au6MZmHqhn_Chu41VInxdJgdAZGkllj0dCppWGHZlw=w1467-h974-no"/>
+
+We avoided some of the trail branches that looked unsteady or just downright dangerous but after reaching the peak of the trail, the route beyond required more clambering than hiking.
+
+<massive boulders>
+
+This trail was a lot more strenuous than I had predicted and perhaps it was that it wasn't on my original itinerary that I didn't do my homework. It was closer to the rugged trails of Java, Indonesia.
+
+Though thankfully we made it back to the foot of the hill just as the sun was setting. There was no lighting on the trail which have made it even more hazardous. 
+
+<sunset>
+
+We located the other tour-mates having local beers by a salt bench. We looked about for the driver but couldn't locate him. I finally found him dozing at the wheel of the parked minibus.
+
+<img src="https://lh3.googleusercontent.com/SlQRBz61AULNiYS34HRm82GBuqr2be3iBqVJLRec-lO7GkV2OqqOzDZ8ncqbN7v_5PH8jLHgCIhibUX9CzJUZo-1DQB7Em1Kon7_o8nMicIa_j1YVArLteaSfX91wwmdvKgzsdbIcGzA5-DJ0B5wczOEgeEY6ahKRflXrylcF-w8sWGOhBzU4chsxhn-hn0jh_G6aMeGfN6HDS7pXgUAxdbvQk7zkEFx977j-BT7rJsMVhxp5ax7g5ZmVdBmZhN3kQucqF5y7BjaFi23SP8ZRzW_fn6z-3BlD9AQKuFPCXehD6-u_ikm0YIz6oiHz03cEwHOpK0qR0K5QmGiWDqXtYnpc1QiNbDNynBxFdqY-cWg1Choae9jK6Ay8a5SC3xM0ZfealOJevfPeNOcQBbn1XxmaNpG1xuv6HjbsrxQDluH5n3JKSyisE65OOj5OFxBlkistO7_kN91iFhZin6bVcaZaeHaCv7Sr710Sto7YUQDU5CBPXBhUMUNbqub3O515OpRy7ftvQ1OpgL3fax0kRhxjKVvhQPilmihSgNw93HXc454gpfwNt8NmpVOF5l-cPrhNrKbcZ4Wu_5RnmeDD3Sc8cmgOntNdNYE0S6AQ7bwTBYAVk-vgWQ1wQorBkghzfhJQhRw57EvfxNLGnAdn7zSFVnnoXr_QpQ=w1560-h878-no"/>
+
+##Salar Sunset
+
+We paused in the middle of the salt flat to wait for the sun to set. While waiting the guide passed around glasses of wine and crackers & cheese.
+
+<img src="https://lh3.googleusercontent.com/wfwUBX_cgyQkK1twccmOidmi6VIn6blvBO8gK4huN-Ez9TPinMWdGvGp2VGEfQo9fk9gJng-mFMEatEJr-LPD_RrX7MZ2uPd5X2HdlLH7TU0R_SBJRb6vepvVr2Re7vcDcWkFXQAMIf5DhMdkCpYh9-YtuWDENKxoFC8UVtKequKBZBXefJBibhiIH2xxpsCYxQzgRDO1L7igzJ_pSui9wA3nUMz2Jy5l4fMwz-o71Gh5mWu7J8YV3wHXDJweo8BmsZlfKyTCoq6VBetHXaQYdf1DpjWU4nqeM2e_4Z-HLwlfhO0dYAJWZ3UfBYDVey9B9LOp37t1C9XzFLIikUZiqLw2LvUYPHyY8t-2UyVh1jZ4I5GIbkxlmDNFjXdlT-bv9Bap1pa6k5_VBsgy-0RcY76F9RfTK_-fOFbddXQcqN4nLJcf2L9w-d_g7WnMYlIqmbUhLy56EXv-_2vMlToo9Qg8-6KzMB6jl3Nj6kr1WkKFHjy-VRxUhiH4_auUikdS257T8goeDlDR90t7s7yqXK92vxM54UndgCRjrbZp9BOWI704JUhMK2aZyulUkgsxcATEJNLUo9jTSEHpt5Q-cp6NFRMNNpLNOCzNEh7gE8XI7xT8APwyI917OPuZnAhDnG_m-WVYcfkj2gB4FKM2PpDuyCBswNSaUk=w1560-h883-no"/>
+
+After we snapped the last photos of setting sun we re-boarded the mini-bus and headed for the hotel.
+
+<img src="https://lh3.googleusercontent.com/wzzaopA5G7QmXv5zNH_lVgqUZKu6jI1qEEzdilnoJocEkeZ6loK4rrV0TZDP0Vk47kMcOgsypaKghjJzVN6mMGM3zbtoDwvzoLcRCEnAXxBh7gqdk7uzvDwNTvWLrV6rThIwO04YCXwYW-qWZbONKUpMVhe1u2aK92KiUFfFtkFIHEOS2DoqzMkm4mtViHrIOePqIwaGgr1OjhHcTAWw25m9PbFJm_T7Nb69TqcWuyNdpOg8VfI5OjF0UA9NJqSpQgcHo2ePjzRSLx3ZA-u0ZI311ZfpJ2RyjMFi-X5_l8f-OaFHTUCI7xIesDip7EbJFJX8y0F0I2637UZ5l5j4jGFE5NS8HcqOPUDzW9xh_nJv6sqtzwtx9zNKVTIVjtkouS1nw9G6utl7htXXvl5644WS7UkXzio3vmIPavRpfEyCsz1TJUg4aGKvpqG0WgTck8akXOTIbhp7NRuexxVKhE3m8RM29LAJFODrfI0Pvmy_SCXg4jF-3H300o3TexKssIVILHyPDtk1FSV9KqciM5m74AP7Zw0yj3vPX-59KAJ7LmAf27b9K2bUpBRHtvRrx1X9Tz8TJxIfeI-nQXUmO_3iEDhfJ8iFrz33AENOSypSjxCFg4VonlXm3SbwvDNur2O4vOtwWPDhmPPVmK0zZotNDWrrZ7bN_mU=w1560-h883-no"/>
+
+The temperature was rapidly dropping with the last rays of the sun.
+
+As darkness engulfed the plains and the only light available was that of our headlamps, the guide pulled over and beckons us outside to witness the starry skies.
+
+It was freezing outside and only myself and one other tourist stepped outside to take in the majestic constellation of stars above us in the clear desert sky. It was far clearer than our earlier stargazing attempt in the Atacama a few days earlier.
+
+The guide attempted to take a long-exposure photo of the starry skies with my camera, resting the camera on the minibus bonnet as a tripod. And although it seemed decent on my camera screen, it doesn't quite carry well on the big screen :P
+
+<img src="https://lh3.googleusercontent.com/KP7rh8A7f9XPwKHPHQ03vhiBuTiVfx8jL3ysoZ8gxHFNucyjxmOFhHefhI_r_ol1vWJ93bsFm6keVyQew9yvO7_0il8PPmzntv-f7vNp-OEpN_iafjkvvPv0mMNsDe7BAmeRqc-PSOyFmtJAmsFJl3_z9V2deRDdDFruekftKbHC0XlS1K1qkmKCwiTU8MyaY6Ll38z7tr_H1h1ZHU5kJ-NwQFC8duCNnTRg5OUYcyqHdjWoo_XmsUaVF767yh9BGHnHizeTPYSknxOejoAujLnzKA4bJHJZSg_8rp7-I8RXawVCRUus0QuJAzznhUUw8AgjN65djsmWuw0_9zbD5FWAeDLO_UQe50cXMxo6KodezCWZHZd_8w7zXPN3G5TRdP7RU2ZL43FjPp0xYasqadAtrrIOnZofu9-iOoj-Z3_6s7lik3fGkZ2SdtQ9DeKxZgFVWuZkxEJiLER_sEyFd7l-Ak77dz1QuozX7KUKKpQ9Teg-jnWfZGMMqXnroC2HHfZvOcRsK3KqmPfRsG-byqO8uX3_r3NrvIp6Z3uJPVwijL7mwawTZk8QPi7Al3coduvO7YVqSVb0SnZ-o12fMsg_F44ZD2vzhjJAvhl8butUDlWRMA4Fa3KL2rEk_6hrfrFLW0GcTK2nEGrTpxuW8Fk8y8raLSS14eQ=w551-h974-no"/>
+
+<img src="https://lh3.googleusercontent.com/q6ECaBiubdxvCH-zvAbMcsZygOAio_T1V1IxVdfXTrooT3R75DBEjsBgYhJW8ozKcP_wficJoMQy9iFdcAyzVviBQpnRZpxEU0P36K3rLUH0Wi0T-lln3sbVRX2OxuzwWNBCwwQVW6GmvvI6PJDfqGPT6Ze8Shx8lNtGyjZ8oGE94PxYyj8oWDflQeBnQXsmAii1knA9Zxv2JcB1jqyteN33LSlHYc6vUW3x8lB-I8yQjOVZLf2CH0o29eL0B9yoffU5LK7bOSY9W5_kkVAmGGZ0S6u1RpTMKegx1j2CJmP8xzeeLWd6wILZ9etExYey-jEm3Wg9mleE5-7s2fclKkfFnkqW2oY5jzvYW4rSLorl0viRLR42WFZVTDA_XNMQNN3DecNMrusYDKi3oqbeLYyR6uWNCB-dXAKwGYJxIEyaQbY_phQDUBq3DmxIfJTbRb958CHP6HT4RGwZvWIlEWjUcnNMd9mFioPqX9lQPo3NYO6_SlpW4xb69S89fSEb4aW0EdD44TsnfSN7ohTk-8ZDAL8tro2LIlcwvIOfao1hUccfkC30HbHEIo0hColL2k5CEmCDrBVys5b1r0L0nv-y3nD9BPPtZt1OdMgefzSeM5slIPZL_Blwk_YIstfOY047zQwByfBcE-IX-vLg1knsy73TqpU-Wgs=w1560-h878-no"/>
+
+In hindsight I should have brought along my mini-tripod. Though trying to figure out camera settings in the frigid dark while the rest of tour was being held up probably wouldn't have been advisable in any case. I then re-boarded the bus and we proceeded on our way.
+
+I continued to marvel at the stars from the hotel veranda and the hotel staff were thoughtful enough to offer me a thick blanket to guard against the cold night.
+
+##Conclusion
+
+The Salar de Uyuni is a sight you must do while in Bolivia. Sure there are other Salt Flats around the world but its one of the largest and has many colourful wonders (many of which I couldn't cover while I was in Uyuni).  Though not the primary target of my trip and I'm sure Potosi would have been a more cultural experience, the Salt Flats were a unique experience and getting there probably being the most testing logistical challenge I'd faced on this entire trip. However, given that the tourist infrastructure & development in this area might be a bit lacking (compared to Argentina) you shouldn't expect any sites or hiking trails offer much protection so it's best to be *cautious* and possibly carry a little first aid on you.
+
+I organized the airport shuttle for the following morning and settled in for the night.
