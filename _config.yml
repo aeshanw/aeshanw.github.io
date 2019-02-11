@@ -1,10 +1,11 @@
 # Site settings
-title: Your blog title
-description: Your blog description
+title: Arquebuz.com
+description: A collection of travel notes
 baseurl: "" # the subpath of your site, e.g. /blog/
-url: "http://www.myblog.com" # the base hostname & protocol for your site
+url: "https://www.areqbuz.com" # the base hostname & protocol for your site
 twitter_username: twitterusername
 github_username:  githubusername
+theme: minimal-mistakes-jekyll
 
 # Build settings
 markdown: kramdown
