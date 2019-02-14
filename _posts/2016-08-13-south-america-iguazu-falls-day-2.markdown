@@ -7,14 +7,14 @@ tags:
 - south-america
 ---
 
-##Argentina's side of the falls
+## Argentina's side of the falls
 
 This was my 2nd day in the Iguazu region and having covered the [smaller Brazilian park the day before](/2016/07/29/south-america-iguazu-falls-day-1/), I decided to spend whole day in the Argentinean park to get better acquainted with the *Devil's throat*.
 
 <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d11920.032346584188!2d-54.443734595364816!3d-25.694221305021088!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x0%3A0x0!2zMjXCsDQxJzQ1LjEiUyA1NMKwMjYnMTYuMCJX!5e0!3m2!1sen!2s!4v1470552891514" width="600" height="450" frameborder="0" style="border:0" allowfullscreen></iframe>
 
 
-###My plan for the day 
+### My plan for the day 
 
 * 9am Depart for Park 
 * 10am-noon Devil's throat
@@ -27,7 +27,7 @@ My driver dropped me off at the park entrance and I proceeded to walk to the int
 
 <img src="https://lh3.googleusercontent.com/oLKJWmYi8X3nKZDDX7E1NvhsnvDZ1WGiVKZ_HWMMpitg8iYr70wKSTL3p05t29nMFD11aTD6OhuQ5pGhzS5JOwcAjPVUWURskHI93N4fw4arYAhmF0tMlMRm4RUs0WxDaxrLWxnC9dMxJwlf47hGf1MfznzuYSka6uD8WWIRnwBXgLvtW7gnGGSPrpjKtXGqf-X8T4xHytJQ3ekBNDl_9O-8UsB8UFGtGhACFyDaoCW78-2l9Ro_t0vhpjdM7XUIGPYX_AeIG23U5yQHUnWCu6AX6TVvsyrbpjZj-F2z3qtLDJ3V3f_DMdA_kqX5hpXH4owU17kPyH37smttQilj_QZ-sqSFgnbtlYDhDL4GmiibCzoy3s72v26NfOEnxnFSNUWbwm-nF6tqU2QBZCUfTEdaRovjXrJiu2Sprj5_bdJu198z-0rdgUSnrAP8z67x7VYE8PMYJIyVbczRxAw0B0O_CE5b8G_H_A1_t5Kx2RkyAqQOOnflswTl7p34mr5RuPTItFdgUsS4MYY49wD8QTB6LSux9Thbn3DTho5D36YVfmal2B605YqVsLeZWOAcj-AbR8MuU5fjsKKCBIbdbJrqcQ=w1443-h961-no"/>
 
-##Garganta del Diablo
+## Garganta del Diablo
 
 <img src="https://lh3.googleusercontent.com/4_LvWtIgq1qsoBAt__n7T74I0eXTVMevbJsT0ByoAw5LGoybjkUIpsqqAOnSnt6lTWi9qs4_5SUU8re-0ubhNHaNCZ_lA02SBtl3gS9XppNSeR0wL03lJTUCwCcCIg-8m6UuwIqP_E9spphZp-3dMCFpn7rlPuTBxhsOlOUvttAy7InH3pcHIxXYG1fXPwfc-5u0riHfOg918le2lN6ZuPn8Dj94ah2kqCkcWxdyPaUpGbH4sGPIDci4olA-j7A1jo5ZpTAbDzPbpZ1coGILl61TlD1KMmVxxEzKpOZi09_kd1MHREOE8IVd8eJ_2wJnrZ0fmWxPV9OKg8_SrLRbgTGOFTijEPTPhBWS7C8ks-cYn81qCncH00-k4hbJDTAcbadWxiCdHWAmBWkIB4JnTavOfjW8mI0m_Jb3__ZoHiGnJz2u7TO4WK_wdh0Qu9gvwclxgtkv6IkbGVnO-ZeUs0cN2Xp1Tn6B-vCL2oVKSiOv0Nle6CLqZePu4Sg9cp7vU9apfLhwXgIaLT8-VZy_m8XhrvsHPvyV8osjTCAd2a44fFXtqWQeqC1wUB0s_nuvwYKdoSDXtZQuGh2iIqHr8TjGCA=w1443-h961-no"/>
 
@@ -58,7 +58,7 @@ The guide was a park ranger and was very knowledgeable of the park flora. For ex
 
 Given that the tour with the jungle tour was only marginally more than the boat-only package (about $50 USD) I decided to give it a shot. It was an informative experience but might be a disappointment to most hard-core jungle trekkers from South-East Asia.
  
-##Going under the Falls 
+## Going under the Falls 
 
 From the exit of the jungle tour you descent down a well-maintained path down to a small jetty picking up dry-bags & life jackets along the way (I can't recall if they provided a poncho but you're advised to put your socks & shoes into the dry bag).
 
@@ -84,18 +84,18 @@ I did get quite **soaked through to my skin** by the downpour (ponchos are recom
 
 <img src="https://lh3.googleusercontent.com/XKlAAKePf6M1Q3hXT-zDrvBf65ooWgXDS2qW5BlvzKTm0s_ZmCRIKyWKKlWDdv4N6jW7phG3r_fZg_PG0TOMXA-AIf-woSYXkJmUcadn1RCneAXV0uB8Dv8Sn0Wl4_8342mAxhknjhhjd7BwtHpM2NpUg5u0XvX4Qr9GnZCAzRdkNUNXVg67jqxxMAL3wHzSNGw7-C_kaufPl_QpBd8zxOgAMNdO3tT2arQk3BGAC5PMEnBNuiTp0RDvfckqwIOG_GRV1jXAsWyElD9nCyKYhjQHKVQsF-U40ZV03WjgI_JH40ymceCM4rmHqSNZGKC-Id7luTTKBD1h1sz20z1fSVn-_u6qYyruKhhYofJwxyjleUXLmLwqNT52XXQGHzhcWNeNAR7zDaYQ1hpeQt8qINOZeMWZG76qBVH_XZcl3LZJanN7x5X2XnX354TREYUzzs_c7LxIGT2mbqgAqJltiAxne4JUU4Gk7hCf6C-LqZJF4eveSCL0CDjRk1UzDMu9Vdr8qAnsud2p4W2sOU20L2KCan3LA15ya6PGgHCN5Q8yqDKTTwrHiKTK0zSrFK5fVZi6idzKIkVvFqmqg9aCWuGsEw=w1560-h878-no"/>
 
-##Remaining trails 
+## Remaining trails 
 <img src="https://lh3.googleusercontent.com/OQ29FCEEQI1lbDy5TbMv1B1Te-YFjPhqKKyzTauFRuuWPBLC8noGuXBiNKrruL20mwi88zrFwJDSGokSU5Em70s34-a8V6cBgc1H5aec5vHH9mVqSlnUR09-Tbaltzm-SK3d_YExECrXxrThktpQxOSRjzel1UfSvuZdy6vN7GV0uLXRQt3IKH2Vm68crq5KWJhLFS1vdjCPm74m2arLxjHKi-1kNOna7as_Uv4TfiPvUfb8FyQhdUBLaBNGAFajkVgzHs50GcoscaGIW5N6n0YXKE2nOEfgm1YINJPBHiyaVPt3VFK-oLKdl1VeqFRXAIzEVdq1xYmZ0ROMzhhSx6-gshCtVAyUNhcNd_iWln0KTrBJgYJVlkF37U2y0T140akvmrMNM_eBelU85AOKb0gIeuJ4g10z0G7GmGE11F8nAnU5Owavh-vcpWhsr74ZYPoW6v-tXlejdz5iDEQ3rQzmWMC2s6hJUkqMKWTwmLcIKTWogpSQSDpEUKNeC2njXg4wWe1hLgkMh0ZhFVtjVec5c4gLJX8UXoALAhcpAAMT7692N4JNQ4YEMZfilvBNGwO55FbjGhI-DLTOX6WxzEj4AA=w1443-h961-no"/>
 
-###Park Map
+### Park Map
 <img src="http://1.bp.blogspot.com/-RydDUJTp0Q4/Uss8yGi4UZI/AAAAAAAAmdk/Hg6DS4x4m1w/s1600/iguazu.jpg"/>
 courtesy of [Travelicious](http://traveliciously.blogspot.sg/2014/01/iguazu-falls-argentina.html) 
 
 armed with a park map (like the one above), I proceeded to cover the other lesser trails of the park. they were covered the other *lesser* falls of the park (there were a great many ranging from:
 
-###The Black falls
+### The Black falls
 <img src="https://lh3.googleusercontent.com/rFjgKmnJYjg46KfGrjdZTKYW-K7WV1IyUF3L3ytWn9L23Gal4DSuvOa3yulY205Nx8MfGZqgjXCO2yfcz0gdNzrwAfqQbFAOFLyCcOvt6OjbAUUzjEJwCMiye-FyK7AYX1knrkjnJBTXHlu8w5YDhR4uCKw7zdMiOk22fOHcXcpYuRQ__ntujxA_RVSj2f8QsVzKRG8YD1xJ8DsUeisQaojTeUh6nOVW-WVN1EWRr0kbiIJCEvqvuGKg6idtIyPXWb4Ba7xsJS4O7tTTVmBJmqFz2wGsTaUWRIxgTDHn0JY92gEFKKwXzbDKaOiZR2EkLGqD-Whv1QVvdTy6NUOKE75N0_wu9XYd3kbYl1zSKwsQQ-E6jfMCf2Z1DlZ7ryO3p_oXnjbYhOY00qjQD-CNoGJm7lAxXg2LJnJNVD4UkjwhlsgnpCXTGmDX6tD4t-pKKgmiaHzS0HHe1ZaYlnIKyegn9cGsJ818IrrMCHMfJO2bTOjWt25KJ6IXNMvTwV_nzPsOmY1clbny4QTsYaPVlLLROvF_XxMNIAOHMIgz4Vn4KtwO_O4KjgaTEVuybAUbJSp3GgUbRaZbdvQWdQ8z0ePQnw=w653-h979-no"/>
-###Various other *smaller* falls
+### Various other *smaller* falls
 <img src="https://lh3.googleusercontent.com/xjIYM3Dd55_aPPFiTYbjJiaSr_K5ObgigNVXGbGAR7pBjjcamqri1FHALO9VirZAG8dU5WoFVEYuj81Docjzn5F8g6iO3pXEsAzM8PaBpEnRLQnLttKRoq0Rlu6K7OmOS4RPatrV5Qhhb-gW21dMPH3ARelv78AvOHqlIiaAPud5PT3h-JntUCuUVgJnyoEMEW5KZsTqM-fSExt-kYNIKuYO0BSl-5glntguaEUcyEWI-g4hOAcbj3IzB4bzEEaqQkn40XGSclKy4P-3L4tQROBp1jjtGdvvgMb0wDQB3aVYxY0DOUTGPTfJ6STNDcKUziG9E-sv2r3Ji8PxCU9XYEZg7_9OklPR5zDGqHdR0jAw8gF3obwFi_qhyrMjKqPASH2vY5r9tivWl5stNFPJhXMex0EiXrXKBQx5ISyBN5Luig3UB4ZymlmvmFbp1UIFfAW69zQEHCBAxb5LwmCngYJCm9u-8KQoKkrEmVOM2epCZky9KCSnx5O9JBT8AwgEylCJrQszTr6WZtXBjWhLRfdmwIq8nlRzJcOE1e5aNXVjBZg_QpA9vIWKeNatKNFdHWzsc3YqIivGLP4YVJ7C5uHKkA=w1470-h979-no"/>
 
 <img src="https://lh3.googleusercontent.com/g0BQKqGW0lfAVT0uvI0Ee-QgxTzKLbdakIUXPKtnSkDtfLGiFhLHXPjhp9DjxbFd90or2dOneda1tnQKN7eGG5h5L66zgQ7OtP8szWW5zrNXaTUvJ_gDLcLfmd276mnROvHK42Ro6qQtTqq48FgZTMB2AZ-UY11zAYAgg-MJXcR9j9Jv2HlWpzDoYxmlgHRDSFxFQVFTvhM-eCzEj6jbOG7JX77udcwUmbcCxnM4ztEE64XmMsMV9UJG_87SJIiilAxRBij3l4ENAir138W5uvyN9F8SPd0TJZWvQkDuw13RsCqXltsN0ex5IuGZ77eYsQcsVmpwGMXpYVB2k_msebCanOpmuGnQaTlET4O2mo-IXzq66pkg_WRYAQlWiLsr9dBYqisPVUe2whE-xKrbcMmAnS_TE6L1VTQvH0Tp1wHG25gTJEhOjLrZJ4RKw_vTTmrCl7n1pmySaZZ3RDjKprGzEyggmpK5mDKKftJ7tvCOBWJ-L0mbGWWNW-RLugmNQEz0mDSLGE9ViMEqze7YYi5FV72Yc8LF1UIEiKyrkgXpwwLM_QES-Dj3f0DTIQUslUWuX0lUcB0v-_xC2ZgRJHIl3Q=w653-h979-no"/>
@@ -104,7 +104,7 @@ armed with a park map (like the one above), I proceeded to cover the other lesse
 
 But for the most part it is was to just escape the crowds I'd encountered at the more popular parts of the park and though the remaining sights paled with the grand attraction of the *Garganata del diablo*, the relative peace & sound of nature made for a pleasing wrap-up to the visit.
 
-##Conclusion
+## Conclusion
 As I headed to the exit I passed a makeshift marketplace of traditional handicrafts from the Guaraní villages. I don't usually collect souvenirs so I just took a casual browse of wooden bows , arrows and carved ornaments before moving onto to the exit.
 
 On the way back to the guesthouse I tried once again to draw some cash from the ATM (this time *Santander bank*) using my OCBC card with no luck other than the same error message:

@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-##Llao llao peninsula hikes
+## Llao llao peninsula hikes
 
 The remaining trails on my stay in Bariloche were a lot less comfy than my tour of Isla Victoria.
 
@@ -15,16 +15,16 @@ The remaining trails on my stay in Bariloche were a lot less comfy than my tour 
 
 To get to the llao llao peninsular I had to take a 45-min bus ride (yes a regular public bus not a tour one) to outskirts of the landmark llao llao hotel. From there I'd have quite a hike ahead of me including Cerro llao llao, from which i planned to take in the panaromic view of the lakes below.
 
-##Local bus to llao llao
+## Local bus to llao llao
 
 Local buses in Bariloche don't take cash so I'd need to get a `sube` stored value card. Its a contact-less card very similar to the `eZ-link` cards so commonly used on Singapore's metros and buses.
 
 <img src="https://lh3.googleusercontent.com/zZzibwq1M-3ymhOcY-z2CAYbAKj1iiZOIhhNa_qUC964uALvAAdAPainZ7EO7VqMeFdm9UQbWVrUQA6k7FRcunStIdxjNgF-a3juYVzGLbaria3Bo1JqsYg53FizppxhKqnGhSAvRw4nfjoQYlUbwsqsV8gGygq2kOaXjv-DThGHCw40ne-TAARaBPHjOBAalGM3S80tnsmQ7misx2Tm1tokjGYRC-KV7zslKzwDGvy7AX3yoScpu8xo0Xe2sqH_UjPNKPYjDdqNUp2VSU-msgs-1U3cNlsdlx9CXZbm10sWE4FdNX58CQnPfEUmzUz_NLPa1poa_FxLtsSAygL_WeBdjCqe3Kk0b9wjg4KSaqE1XJ2yzi4agh4DeZfKrhR28U5PNXdswi4-yEwHdNTj7k8QmAIwPcZv_TzvjrbZB9GE1MyinQe9QVv_nhgK8cGXqw07HJ2SWXTG1aegga6SpC6MTDlhluaZHzV9QPA3z4G4ZY6mKoD7P3OfLhNVPn9xI2Ta_wnyPz2jHpmhTpO4A0KFjySjRF7SuyHqz7x0dAIckt2tR1nTihcosQfUAtbjyotqvy7GaruOgDb7kJk1q5VkGv_etJ5j0pN8sH_xng=w1732-h974-no" alt="subte card"/>
 
-###Communication trouble
+### Communication trouble
 Bus drivers in Bariloche probabaly don't have a major need to know English hence communicating the destination and asking for a signal on when to get off was a bit tricky. I was using `Nokia HERE` offline maps but the map for this part of Bariloche was a bit sketchy and this bus-stop was unmarked so that the probabality of missing my stop (or getting off too early) was quite moderate. Needless to say I spend the 40 minute bus ride anxiously checking my HERE map, tourist map & the surrounding landmarks.
 
-##Start of the trail
+## Start of the trail
 
 The bus dropped me off at the fork of a road. The left-most road led up to the world famous `Hotel Llao Llao`, the right-most led to the ferry jetty and the road ahead led me into the llao llao forest.
 
@@ -50,11 +50,11 @@ I'm not sure if this was due to the autumn cold but Patagonian forests are very 
 
 <img src="https://lh3.googleusercontent.com/RA_16FNx46TPBq_Fv5Rc9IbfXesh_WA_AFHI_nw47e956PfyvmNim34FuxTsUGPai-WDdovvTxJ7PWC7rzxU1AOJAm6dfTvH2MiAkAhI3pkkZO9-Ahz8HMIkSEw4Dc9gMy3UxRgeYbX560OG6DzDzcrkwXylSuTP4GeZMueeEbyp7kK6NbAlDwEvn-Gr07AygOJYWWFOLOjA_gZxALSCtA928o05mG6XbwT-cUFg2DAmxOipdZkND-UjnajZXKne0UgEp2aTOfHYMxd3JPIVHfaSf4Ve2bHJdaKyew26UiWcuFen1HsUIYuTn63izlWzilyqxbN-lVyoxhp1A7tMKWtgZV7Bj1b0kH01JRKlFa5Xdy9xhdOMgMG4ypolKa7aR6WDBQW7W2li7YMPZyJWRXPCPWziyQd7PIjRaDbqc7mCQ1JxTSNU9fdlH1EKdEwaGJTazNdkEIknNNGK6jQJb-wWy1DCIVw09IMJ-OG-Q8byAlxve6pml0Qp79U_ycwfgkVkHBGzAKi4PkQxwdC6gVF-6U0jcNdffG_d6fYT2dowlnQmUGpwnS0YehdsTVtNnJBp76dL9YXZj3zzes8nLilNjqQADi6TsmkuNSgrNg=w1732-h974-no" alt="photos of the forest trail"/>
 
-##Hike up Cerro llao llao
+## Hike up Cerro llao llao
 
 <img src="https://lh3.googleusercontent.com/k1H3SCsrjDdHH_44FLjjZa8oWiDd3_SyO-AWPclJD7yXxYFkUPKKFhinYaLhbWi8wDo-HD-jA_9U7GeBe6QSZBiU3kYSlrTCg5nPOtqphZZgyq-kJannWaBFkZM_OkWksaxIxr3vmGA1S26MRvNtOXRPEeQ6gGtrPrIiuxtoOX8vDV_mbjcGoD_dNH84Ar8MJU-WdU6_M2yiaRKPhVodR8MrkUc-3SHrbEe931qDHN1clNneYSTpY94GV9z9KEQOTsdcqmAxplMbfWmzNTpiZzQcvc52QvPDwg9boiVTbS0HY2RWIJvGiVph6yibpXx6xmxnXfn8xrI5ptdWP6CYT_lInGPfSQ-jxE5521yPIO6NsNtICoxzSk6It_L1HayPj2jlxdip09LBsS7wtHiiO8k1s5GYzB4N9Dq1yHTVerBNFI-aiXcQq2VlgpK6OhDQR9dcMhxexJKKS4_3iD6V_YslvPgfnfYDVNFKNLb4kIqEO6088rroxIF7-yhNTx7vM7Lin83wIs0KEC_gIzTIeXkw78Mz1uRHzDpOih-VBCsN1JB_xyk4ssUA7B_smT0Y_3mchBBrcqf1Wvy4CT_yrctNl3NqZDS6QJedlQktdA=w1463-h974-no" alt="uneven path"/>
 
-###Bees and rubble
+### Bees and rubble
 <img src="https://lh3.googleusercontent.com/JPgXhsluxx3a8u1t4J3ce52noGta84uNi41tE72HIbij-hjYZ-zZvoWUCmPtEU-CMrEWOjuHgGOiMR_m6HFwJL0ZlMjDV4A6kivE_YkpQqukaW5PoniA4V-yH6cxKaOLhB12bFIxP3ioZ6-2QFSLGOsBERmR-jUkWRg6SXWkBcMlREEE7iE8yLR75rP-cwdBE9u8xCmHJq7K8sLSRzzN4i4tqg1-cM8NoY7JAMERgnTX3huOdP0EkVM2brjcR5anaITZaN0URmob-nNmfXuV_nKYZC7a14iA3yUJc_55mtGodtyX7Oq1F-c0yuPNIh4sDhx5WCNzTO_HET6aK0YjJRgYW12r4W6UPDU89eVL7_Xs3CpyCnf37l6m8_Psa0uDgii7cdGowd0OOz3zoj0jM_nmYFGCS3lwwGTD5OPc1ibXDiXidYaaoRqd3e0cBaVNehY0Jfb5hjZT5f0V4hChNcDvl5dUYnGdns12mUFwKjwM29Ja3Qm38HYUkQ3PrAgJqLs3Uul2Mc1q3Zjgf_dor1JntA41de6QPJNL4yc8qaDBurloQldJJWHNS4AcLIg3J7BbvkhW36Gj0aqpNz3t_jmSBWCefANt3sKfjmYDvg=w649-h974-no"/>
 
 <img src="https://lh3.googleusercontent.com/aVOTygDXhMPuIQS_Suk96nwrdHoULJ6aL1H44kB-dbtdLhJ0iacGKW619fVtiGhWnbGJkOut06-_3yO9svLvALs4iWPv4gWRR7x2Tkr1krn_yqoXNosvi_kjr2bcuqZBrksFWcACSxL93dyI_OzVwhmfKKc16nTrxpIWnjLsiLeJiZjLktyxr7vSM4-nMnbIPg2f1rEDVqIeBDW2cLkaVBmF-yR81datvo-62k6jzZbEDoWNJClIJo59MR5f5--JkLUUcP3uK2fa1Lrhqske3gIulMPr_U6F0WKUkVDQ3JPKCmyx0AHKJveMPUdq74FV_arB3auPP2-j2CgTfph5DbNvdUA0mEVVv5PWvmsQUdMYFv2KzcEh17SoyQUvAHQY9qdwym_78b7vqkZ31Y_3eLzhuU_QtdQnR28HeRxU8rNiwn_LvTnCJq4ymfVo5X8aOgYAxB-EYfI0WBClYbJlpd-obdEwPLJZ3ks-fAgclgZTgcrSBY_xJBUgJEYNgZh-eTd36u-6gwfpvSVopO-Lu40CxpK4g53ikh7gtaMIBn1jafWg9d7FM9Vr77-pXp_BYlxur_Uf8JnJ87KSmPXnkBzSPaIZadxCGrzak5qmcg=w649-h974-no"/>
@@ -71,7 +71,7 @@ The final climb upto the peak of Llao Llao involved some dense thorn bushes and 
 
 <img src="https://lh3.googleusercontent.com/6rYdVzWLtgfGCXkhT3tHbYgu4km-Z6lXG59oXc_KDoLaGOmZSNA16lKxi5ynZP5KOPg4EmVtD_m4KW_8JvvW9nOvDY8LG2yroWEsrw9e1nHx7ShCQErPcwqhcA38fiVjwYuXVCAg2xo3Zj0r3VhVB7vvHefac2Uyx0_k8qp44OvRzxYnnLUbFcXuPVSAOPvTpi5X_3FZKxSbsMLIlsREWJAeFPmesEh7nKheSlgm0tWHTvLLHLthTe5X0pgzO-N2rNnaLbJApWd_AK0LN-MK8xqh5PxEPnv9RfGXnd9TR1UQEW3g0zN1iMaP3NdZgKvfAQ_ov4nwqapyFMjbMOlSZ-XB7sMYMXobB58i3dtpvQClXdTLmzeGV6peq9ZuAd-HyvsXWT3B9uyOwq5CMk2gQy6ATX3yCF05nqsDifOlzDCxNjKpaikUp8R7Jx5tUfKMfj6_SuOGFHAyJLtGcII3j3Fr29pAuB6R7sWfTEiMuLTruj-10_SMnHRy6ngOAE5lDbEpScQ7yTesZGN51dA4029Ub6KicnvXi-kd281ow7upGILyzZD9dmn8XDuKOIVboqvTR2GbZEtc4y_jCoWkkCbGy9-3AhuNE8GL0mVM1A=w1723-h974-no"/>
 
-##Resuming the trail
+## Resuming the trail
 
 The trail heading down from the peak was as thorny as the ascent. After about 30 minutes I reached the original walking trail and resumed my walkabout the peninsula.
 
@@ -103,7 +103,7 @@ The final part of the trail went through an *Arrayanes Forest* (trees native to 
 
 <img src="https://lh3.googleusercontent.com/p-UB2jy8VVzogXI0p_IVCda_2YdD9ddEjSTDPGRPS7Mn1mOzMmn7kuSQQpBjz-ZExhCDY5JMboZRDAicAr8wTR7S_hP0CJk2OPfHUWF8fjvIC3OgmNS1bqXVV9PPdUFrntJNwX7sCVtMkxZJlGVS0Au88W5-E3c312e7dZAIWa9bLCFPbaxb1C73_WirzcsDYzbcoQ6BBXRWj4yW2K3-SHSfZBEoVjc3SqgKV3Pg2jgZKPkK4XKCgj4KL-tjIo4t-drXHxRFs7PKCPCaJ-yRbqj1J9okWe1phq0YD1SdelUGR-2HTMASx4eF_J9vZRGCHzguKkoUV6ZE9_b8CLf_Z67atOcEakYWB_LKdBjyse2AV6eOBBPAx_M8GuCJLoB-quFxkNcJIPlY3FuJ8MPLPQIZktpHCLDnlX3ZKiOn24hj6RFTmkW-NISgJmnq-KDz7dyjrwBbtygQH13UxOUL-6AxSGTQOWHfu9U7rrdcBUC2bfjt9qu4EmYGiCdkhUARm7YWQS3K5mInWBuTHmjERsPdnrDflkQgfA5veiVLnLT4ChMVc0W9mbUU13IcIyouValgK-lLSa_9yo8wU0pYhLAzvun6PDajvC2zFeO1bA=w1463-h974-no"/>
 
-##Hotel view from the banks of the lake
+## Hotel view from the banks of the lake
 
 <img src="https://lh3.googleusercontent.com/tVZucKrZVP7Jqrgx5ZWjKpozdaawdofCHql5kENWWAVQ99AqGcDbahcMIr2YDpH5LC11XybktNG5J-SKvUcVjHgaYKqje_Escu9kSQzycQCDyKUiammB5QG_Suv3rEZHhzD0LbbkFEC7esswIoFqc93aHKxAOCRPyBWzDi6mb6hccwHj7mvnvZerT6PfJX8z2WyXyI3XuZxsDESWGI6AOPzHwZJyuqjCVVRelL5Xs_mBtfqiBwZt4sZ0lY8v18SRfRXMZpgE6CR5ptBPcumzdL46QgiyOxIPtp-4oDUTXtL6AIgY6ttDrVzPS-5UuVCBSnsvYmhgvkpG1mkLoOJH_jU48CKjrj8ldeeFx7pkC2NZ-Ef3XNrXXkYEyRZ9IPOmDgexVaAaeE1lZRj6cuJp-zyY1-IK9G_bsxQp_OQibhzSjWoBK3LMVK7_bX_AIW3lz1cXJoS9wfXJdo-APCdyARuBZDVKrn1M9Z2rXRwLfF_mNEnEd60D4CbZqbeFtxX1FDGtIRXrlNLHwBvCzlzE12JcU5sg-DXIbUtUrmQmEShZG1ilKagNOdjFdS_zrrd8kN0n6lxu2hmHQYf72z0FVDtk8aETgoQSzCzHqQlRKQ=w1723-h974-no"/>
 
@@ -122,14 +122,14 @@ I finally reached the exit of the trail and as the sun was setting hurridly made
 
 And given the rather low frequency of buses here I didn't want to consider a long hike back to Bariloche in the pitch black of night.
 
-At the bus stop I met a french traveller who confirmed it was the expected bus stop. 
+At the bus stop I met a French traveller who confirmed it was the expected bus stop. 
 
-##Additional Travel options
+## Additional Travel options
 On the long bus ride back to town I had a chat with the french traveller on the various routes and points of interest in the region. I had an extra day remaining in *Bariloche* before I had to rendezvous with my friend in *Buenos Aires* to proceed with the rest of the trip. I assumed that the major sights of Bariloche had been covered, but she suggested a hike up *Cerro Campaniro* for better panoramic view of the area.
 
 She was on a 6 months unpaid break from work and was journeying through South America from `Ushuaia (Argentina)` in the far South (as close to Antarctica as you can get) to `Lima (Peru)` in the North. Her route closely resembled mine in some ways except for duration. She was on a tighter budget had to take long-distance buses for most of her trip.Whereas I with my 1 month paid sabbatical resembled more of a whirlwind tour through the region. My average stop would be for 2 days and would  involve *alot* of flights. She apparently had a deal with her Bank on being charged a flat fee for ATM withdrawals. So she could draw cash on demand.
 
 Needless to say she was staying mostly at hostels and backpacker hotels and had to take more precautions that I would have to. She described some of the security issues she'd encountered so far and that daylight muggings were not impossible in as seemingly orderly city as *Buenos Aires*.
 
-#Conclusion
+# Conclusion
 The *llao llao* peninsular hike was a great way to explore the wilderness while still having trails to follow. That said some trails could have been better marked and you need to be wary of thick thorn bushes on the trail. However don't rush it, if you plan to hike in this area I'd suggest spending a good part of the day as the crowds are minimal and its a well maintained park for the most part.

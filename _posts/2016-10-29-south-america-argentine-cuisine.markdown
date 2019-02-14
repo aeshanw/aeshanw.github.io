@@ -8,11 +8,11 @@ tags:
 
 I had decided to eat dinner at a restaurant in town (one which accepted credit cards), I decided on a German bistro called *"La Alpine"*. The exterior and interior looked Germanic-ally authentic and I hoped that the food wouldn't disappoint. This was first proper meal of the trip (as opposed to the café snacks and biscuits of past 2 days).
 
-##First Taste of a Pisco Sour
+## First Taste of a Pisco Sour
 <img src="https://lh3.googleusercontent.com/doDtiTItVA9dOxSHDEp4O8cpnG-qc0xJjNqoJYdZpxYMkDTJSoW_MloQM1bLBzc-5UxwE_NCHYs88-AS6-ejHhpaFWdhPXdMb5DQWSG7OXzob4LifCOYcYoOUX5PKe2qmvRnjmC5qd1oEknK1QOzNRxRkMXD7CUbQgrhGFBDeV0mVH9piTR5b10pdfli4il5OkW0BLJeDiis94OX2qESPWv200OYHpEqcfkZUMdR9Jxy8zE037nfTFhnwD-Ie_BioLsOUXNW5XPNjNl5jqgx7sDih2FBnllnAchleuU9nl3n9pI66LIGD87ZIWi4zdjMk2mApbDGIiqDllSjhefXR-NYX90E2ZUf1wGJrJ7etCs_tgbw51C4hcc2-gDYpFL-gHIYO9xN5U-woIwZVsvrR1Qlq4W2XWPXQfoAR5jwNMsxg31KNvvbaq3xh6GU9jVeNoqmz3M37w38MZoiFCQKd7_KCYwRUN2APapdqO1_Jb8Y0acMDDQkReO8jwZ8jyMCK2YR6MFJ83z4owd5wBkQIXuiToK3MXWpcYgrBiybXsmF936uTFZRcqPCy_MXjtETLNtt4hp7-oeMgzl5aebKI47icr0IkJ_kBPGJQjZQSw=w386-h686-no"/>
 
 Oddly enough my first `pisco sour` was in a German restaurant in Argentina (the drink originates from Peru & Chile), but that didn't put me off the drink. The sharp sourness of the cocktail is pretty easy on the tongue (compared to the other liquors about).
-##An Italian legacy
+## An Italian legacy
 The Italian immigration of the 19th & 20th centuries had a profound impact on the country's palate. 
 
 The most notable being:
@@ -20,7 +20,7 @@ The most notable being:
 * Pizzerias & pastas can be found almost everywhere
 * Gelato-style [heladarias](https://www.lonelyplanet.com/argentina/buenos-aires/travel-tips-and-articles/buenos-aires-best-scoop-an-argentine-ice-cream-taste-off) are a key aspect of Buenos Aires life
 
-##Cafe culture
+## Cafe culture
 This is something more prominent in the major cities but you can find Italian-style cafes on almost every street corner. 
 
 <img src="https://lh3.googleusercontent.com/Q7VbKZo-1h6Cv0pGopnPyZQe-_zCEXrq-LO1xUOb4RM2RheJH5t3TlfQfy4aLRTl0dat6Foi8I3y0BKt9XuSG3tLdh4pKJh8XuXxu8SRdK5c3O_llazz0jG8ryImC02X4d5eLdoKd234f1tKXcX9IuFLyymnDbJQ2l9tzGBD5r5-UwIOcVKMTdPSPGhHiG1AaYXNbC18v7takeovbG50FZaAhdsCrHgfkIpTc3XEzMJX4CzkeaGQU7A80BfXYrSm3X_OC08LkIQNo3nCcUddE8c8921rMfPoaej9MAd2Adl4MPUQPzqyB-N07MpufsYT2pAqaN41nCFPJ-BFJ6UFyrwfhTff5XN6_unLkWfGAL2yL6Cib8cRYKKRdlgyD4w0getLlGIqARwKi6YcZc9VaacaFI1W78XCMJQsimOyUUMjEmpBZUBTQuIfAkwBPtoIAaJrsfmo0x8m_p4mgHU37_YiG5ayW13scm0S1GN7PY189KcPkPjyqEcraIupNx-p3W2i_xhIME3Um7reaRkF-bSzB4sf5XvTLBxQRaqB97cA1kSS3sBQ2owAhUUGik_Dzp_DO_K4YIT4JOeWd1FzHh-LTkqregMltoDJlSFG8A=w551-h979-no"/>
@@ -33,7 +33,7 @@ Apart from the *Dulce de Leche* (caramelized milk) biscuits (called [Alfajores](
 
 It's possibly part of the culture that was brought to the country by Italian immigrants. The food options of these cafes feature Italian panini and the sort (with some overly salty hams to my liking, and some very crumbly bread) any European would find familiar (even sparkling water: *Agua con gas* served almost by default).
 
-##Typical Breakfast
+## Typical Breakfast
 
 Breakfast, like most meals in Argentina are a mostly European-based affair. Pastries & jams are quite common featuring local variations like [medialunas](http://rebeccasinternationalkitchen.com/medialunas-argentinian-croissants/) served with a [Dulce de Leche](https://en.wikipedia.org/wiki/Dulce_de_leche) spread along with some hams & cheeses.
 
@@ -48,7 +48,7 @@ Tried a local white wine along with the meal. Red wines apparently go better wit
 <img src="https://lh3.googleusercontent.com/k5myJNDnAdKxrmI4pU_kTzC6xOCrHHPeZ0a1dgUJF4UH4icp-dhQSPtz27vlNQgtwVqBp41-5RD7T2TjlqotCLfeZoj6VOQSWefZrCmCm6bUqs-SistFNkssBRkXeYwYFvk5izKN2HI9mXvpU_XSJbF0lCIUJg9nF1zim9Y_ErC23Q2oucl_Gq6XmdBlKiHhNr1uegUOVS62VbAXkwXs7q19-EF73nxt-mXSFp2NK27dNkAClkoZ7smtWriKtzNfIpeK30KKuZxJVj527qMg5eJcCZzDN_RhbZwL1UO8vMVbtE_iF_XVLidfTlYM-ot4ydUm98NPjhZ1x8_y96TL06n6b4G5-FqntEIhW5V_fAmijksDV3EsY1EhuhSWoKcFv9N68UMyj2wjJSo2IHuesYI8XLRGthgD0ONDR9dwocIStCIAqs_18AndwlZVbhvpaI3jprYvZZa-5CvYVMUndJPPcW4WOJ-KBZLilCR7_qxH7Mazl7fD0kQpsjMcJmTZxe66InCPIbmKGeEi0NcJSIy5evYPPq5v2PiJHeH_LThX5tv1UTTpysgIQj9twQ8oCdhQ3DKGE58a7w4piB9Zbd8EoNUpLUt7bAFZ2PRoug=w386-h686-no"/>
 <img src="https://lh3.googleusercontent.com/gzbudh9XlGdAbJMqdyzSAMa1Hn5grwu-H8fFUB46Kg9ThtFnUMa9zM_Vc6MyMS3EsC3ZNqYUI9MZ9wyw06YDiciLJA4AyXwzOPxvCwk9hDoy8A9CT7MqwHTPc05hS8-ROSPgp8DlSQMYLUa57G49m1lKPRSraYKgL-bsuDe2YVshshykMTWIXsYRujQIP0i07wXMy5dHl6PriNc7VdCsOUss1XuEOTHhz-KbfrP9idY-AHxiOJ1PJZaxAwjUeQRHZ3Z_wX2vTdObzVvoYOpPpu_8pAWq5FW7ridNlhXeYYJzRT3VHcJh6PIUOhDbqVXWGhma25vcn2BijO8ir3T14CMGMZzM1I310Pma4ZbG92zH2eFwu06-jJvo3_QoqGkjuRoD-XSZ12u0_KhZYmlj6hDDKj5-sLl2G7xtaUfflYS5xKE49hqZJR1RX2l9-vfW-ra1lzLH839N9qAIuGde7LGnaB04ILvBWpZ43LTYxcbBtp3xuWvJkd-ZGk1OQ8xHgcsBtGKAjyKxCrmBLuC2Cy4iHjGRPJg283sIkWVQ9G0qNN2KAzZsWtu5S_iyG-nAC0R_3_EQsEoNEH7gIvs8mrrAUQ8bRDpKNsp99_wp1w=w386-h686-no"/>
 
-##Mate : the social beverage of choice	
+## Mate : the social beverage of choice	
 
 My  first taste of [mate](https://en.wikipedia.org/wiki/Mate_(beverage)) only happened at [El Calafate](https://www.lonelyplanet.com/argentina/patagonia/el-calafate), but I'd noticed the *mate* culture on the first leg of my trip in [the Iguazu](/2016/08/12/south-america-iguazu-falls-day-2/) of northern Argentina.
 
@@ -60,7 +60,7 @@ Mate can be closely described as a herbal tea based on the `yerba leaf` which is
 
 The crushed dry leaves are poured into the gourd and less-than-boiling water is poured into in stages. The idea is not to dilute the tea but to drink the thick paste with a filter-straw. The tea is a bitter one, comparable to Chinese grass jelly or the Sinhalese *cassaya* herbal medicine. I found the  herbal medicine repulsive in my youth but found the mate more bearable , sipped hot through the metal straw. Once most of the gourd is emptied of tea, more hot water is added to the existing leaves and the process is repeated for quite a number of cycles. 
 
-##Bariloche Chocolates
+## Bariloche Chocolates
 
 The last thing I was expecting in South America, was the wide assortment of European-style chocolatiers. The best known region for Argentine chocolate is around Bariloche in Patagonia. 
 
@@ -68,7 +68,7 @@ The last thing I was expecting in South America, was the wide assortment of Euro
 
 I suspect the reason for the popularity of this industry here is a combination of German/Italian immigrants and the large herds of Argentine Cattle. I've tried chocolates in Belgium and found the Bariloche options to be of pretty good quality. Though Europeans probably won't find anything unique here.
 
-##Conclusion
+## Conclusion
 
 There is probably a reasonable explanation for the difference in cuisine here. Argentina's population is largely of European descent. The populations of Peru, Bolivia & Chile have larger native populations and many of them retain their ancient recipes.
 

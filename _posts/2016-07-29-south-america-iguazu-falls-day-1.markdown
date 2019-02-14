@@ -13,7 +13,7 @@ The flight from Buenos Aires to the Northern rainforests of the Misiones provinc
 
 Across the river was the Brazilian border, even the towns have  a less European-influence compared to the big cities of the South.
 
-##Arriving in the Jungle
+## Arriving in the Jungle
 The first thing that struck me on arrival at the airport was the swarm of flying insects of all kinds, from Butterflies to Dragonflies, between the airport exits and the taxi stand. I was later told this was due to the airport being located *inside* the park.
 
 The other thing that hit me other than the bugs was the **heat**.
@@ -49,7 +49,7 @@ Apart from the sun, which was scorching by the afternoon, I sprayed myself with 
 
 <img width="360" src="https://lh3.googleusercontent.com/X9C0k2IgVdPDay0VCBE1HCJAn1AhUuYZtAkw8FWeIK5DSKW0rcAziS-urDcvGE41SFKuVWa6fx3izpGg6BlaOYSXFWCtPcD4OXseQ1i-pB3KlMDpkqjTWd9u5DVyoaDweOybHPcacg2rBgvbLyZduMB-gE4UHsRFI7PVSYSeywQp2BOSxc62blyy4tQHci6Aqa60UyaLLNwcn6_ON6OaxAvl21Pvi4OKbVrkuWgTAesHbZyS0ooD5CZYoSEU9EQy0QcClzlXIFbO4vDsRmbbN25d60EWpgf2761CA39Kz_kG3lcS84-0wQ-LHSJXIOTWKyuxzzlPStnCOgsX_y6wgwEiD8GS752gGDKyH4WGOmsvBsulJa07GFbhh6i9kCX2uMHJIkRZvRhfoE7VQO9Hta-62SYVPGCNLW7CAF5XtKGjakAn7iQrXV8gh5QVLTBu9KrcBAOeq3LVtYGnCTMvwvaEbrz4J5NTsnAMvCtGEgNLOmFu3QNobK9Hey9eWc0iIav4nRSQXM0iaC164y0fgbNw1jnn95sEV30gBQSXT3Z2TWvo09DQur23m-WQnD9fZnQt40GPcKGNpiMQ7CEsbhNg5A=w551-h979-no"/>
 
-##Brazil for an afternoon
+## Brazil for an afternoon
 
 My passport was given an exit stamp by the Argentine guard post and I was surprised to find no Brazilian checkpoint on the other side. It was referred to as an 'Open Border' by the Argentines with the Brazilian police only doing spot checks on tourists to catch Yankee tourists trying to sneak over without paying their US$100+ *reciprocity fee*.
 
@@ -65,7 +65,7 @@ It was a stunning view and the sheer scale of it is something to behold. I conti
 
 <img src="https://lh3.googleusercontent.com/cZypyBbRcAjTXS9Vf1aEhUlnj2tjXuXOP6sT5zD1KWVFjcLO1Tp1IsNBn-ceBtMbItyAs3bk37CtNCInQI38mYAugcIAjiDIwe--lg_QPQFjQ68suMp7GmmCEzTrhBwvruOVB3HrQ4jGWyX4p24-N29E3-zW8CSokNfEqFVDonvMcyuXQDAbMkLEXBFubpw3QfiCZxfXBznEZbIXu6kOL2xq-rDjgM_mbixMTJizT5KFlKMSsMUVYEURl_lXy9A8Yph7eBWLM32pjz2PVzLroTcfu8kO6F0Ed65lC4n_Z9MmjhPMq49oV0UU48bCVi5ElmUcXuC6wpv7uVXcOu-PwGxlBnwoF8i15WmHh6-yZfAk93iuua8wtTO08kC6CWPHU1ocRhhmLN3TX4DNrMugK6ufBDT5wDa0DqLBhglhsqS_rAKJcPvWPi6GzL-kOCexLJ768cU1bODFjknvP_C77nRgsXo_QKlcTy2SI_dDAGyGxP8EICeIMQqNRK7z1GbHsBjLPf1SVaGXC0t7eg9Av-_La7-Nh0z3IsgWvs4Mun2hTs7EFya97RwO4_TT6wN6zHXszPlcJXCsi00YiRmA54AiNg=w1470-h979-no" alt="Brazil Toucan"/>
 
-##The Falls up-close
+## The Falls up-close
 By the time I reached the walkway that was right below the falls I was drenched in sweat from the humidity and sun. Though I was to receive another drenching from the Iguaçu falls as the close proximity of the falls gave the people on the metal walkway a heavy spray of water.
 
 <img src="https://lh3.googleusercontent.com/Tfip7DppJhlHvjwOp_XkTT_qmosku1sp3v6GxxoNuDKIdVVmSdQo4VsA4BHmwhC-wYeDBCMKao8WIKTpiNwFe8oFk5UqMQvH2Hn8-HzfzjXv2h2mxrVLWLD43t2zvgdQmRFmHxThmSKHxQQTOOjIhKChgCpMt0kUywgszo7YDR_EZrlGc-EXBZpAYFSmQuLommBQbYJY123y-O2g-RBQ5Be-afXHYt8g8Co2uEHC8KyzffNN2S-Jqzu5sXx9F0W0JF8wj9o2QTvyJbmGxStDVPKLe_xza7cq1yQOghZ7mN8uDgtvEG8BVd1uNh4UmeAOdCNzOfmUseSQaHsSsa-HzWO7Y9Xyvq5wjuRqhS4Dt32P_ViBMy6K0JH2rPe0GHk4fAQJYgQ0B_0U-37iDqO-auGoENVUbss7EPBoaMKwzKJP_kcjGT_a3te8kiBd8WAlc0spFPNEnD07aJYEDZk_m4NXUHi9O4IdO0gBwC7C3-ojFd5PC8tsrjZOcJmtbwNtDnvsXxtpp4A0F-KS53Vua8f9Ml9eY_0G89LkjOxSdCn42AFWhyFXC8HgV5i4eQLX0-7IY6iUyAExpkk3zt_l1QErKg=w1470-h979-no"/>
@@ -75,7 +75,7 @@ The constant spray of water from the falls combined with the hordes of tourists 
 
 <img src="https://lh3.googleusercontent.com/HxHF9WpHV2vCBX1RQukFC-dcdlmFSvGb2f2flgTl1tW_nifFbWgm1eLWG3DSCP6Kefi6aoWMJZXp4QaU7nsy-5P7jQzWJP4Vv0oGo2boNdaNvJ5H7MF4l-DtdXtQYIUvmPeCWKS1c3QXJVafgEmxqkpAx7JXb_29k4qCAObKQQYFlo1RBAOu6TEcJA2da3TrVmlJGjiIeqi-3EILvKYZY305YUe6UufpCvI-BFuemvpQHuSZT5g1MElUvnTgQOyUDRWREVMoO9ikaukFq9nOQGdTX-T43O1wAa0QbzwQdr-PuL_c-h0nqn65Kd8tOsO9zZAZNyn0iJgQB5OtlRZI_q0_8e-RRDFZvPP3V5EEwVI_UUBOj9yPDaA3vaPGdxUoWm4sFUVqa6KAVK945xWOvK-PF4pddZ8OfXc456P3BCusF-tTYWPWCsYGwGo7reaZ8dCwjLmywvG5Nz68VfH1OblXSfCO9wT3BiqzUtq1CqTNhopoRFeQDdUp5Fc3VZzrwE4OADHzl3Ba3ku-n1xW5FpPWAeYzUszUECk-7olDo7aAxvO7r6rHLxX0HGYqfLskrYqF8lue-jMwyNbTnNUUnmA2Q=w1560-h883-no"/>
 
-##Hazards
+## Hazards
 There was one danger that you had to be constantly aware of other than falling into the fast-moving water: The [Coati](https://en.wikipedia.org/wiki/Coati).
 
 <img src="https://lh3.googleusercontent.com/yoBI9J-lYQwB3bKUM2dSt75d8iSoObUNvna2sdm-gfK6JGNFn4mMe6WCzdrNei3AGx4CNutZrGb-Ix4m_5lJzuHlDO4UAn39lDE7qMYnEzhryHHHB3piPizlg5TsxEJiz0PB-8fngp5G-jfWYN3jcYaWcTrex4X2-6xj7-2OwBPQCDH3yO_kGCDEvBCHrULx7dwl1gjSoR-suF6HNIV5LqqRLOsZ1j9Ed8mxW4hVegaP5kjzi1fHAMYrJSRZnH7_aJ3TszywTXon4-gTVRp62u41TUNlZULWfmfy4aeLcJQfRBkfHdD5-aOfV4HkUhVXwM4UWJJgPW4YPnutIYHdixOUUZod9KXn1SdoH-K1092q1VYWvQJXCcBurZMbUd2Jq1LU_XkjTfAiEdCrvI2gA19D71PSXsZvD0Bu1SUw6PcFb072FmvqBYu_e20m43h1GVKFtFa4p87rIQkIFO2L5pjs8QdaDmw5ZDDtud7-sj6DXzNmvdoeGo0XJW-sgtignIejZyAvOWuqqiWettE09lbWwPaFe7uHpYwR00vBrkNBOQKY2Cn8fCevY_9yFVWjQc3-717yyQbUWMesRIC6eg2O2w=w1470-h979-no"/>
@@ -88,7 +88,7 @@ This may look like a cute furry animal but they've been known to bite tourists c
 
 Keeping a few feet away and not feeding them would be wisest policy to follow when you come in contact with them, which would be often as the Park is crawling with them.
 
-##Conclusion
+## Conclusion
 After covered the walkway by the falls I exited the park and was picked up by my driver (My local SIM didn't quite work and all the instructions it sent me were in Spanish) after a short wait. 40 minutes later and we were back in the guesthouse on the Argentine side.
 
 All in all, I'd recommend a short visit to the Brazilian Park if you visit Iguazu as it allows you to view the falls from both aspects: the **close-up** (Argentine) & the **grand overview** (Brazilian). The visit would only cost you a few hours though those requiring visas may need to factor in the risk of bumping into the Brazilian cops.

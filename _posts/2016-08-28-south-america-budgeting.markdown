@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-##Original budget plan
+## Original budget plan
 As mentioned in my 1st post <link>, I attempted to lower the money I'd need to carry with me on the trip by pre-booking almost all the hotels & internal flights  for the month of travel. This meant a fairly detailed (and some might find  constricting) travel itinerary. But every $100 I paid upfront meant less cash I'd need to protect and insure against on my travels. High Crime levels in some of the countries I'd be visiting provided most of the motivation to do this.
 
 The original breakdown of my travel cash would comprise of:
@@ -71,7 +71,7 @@ The rates were probably not the best, but it beats having to hide bundles of USD
   * draw in major cities
   * avoid drawing cash in shady areas or at night (if you can help it)
 
-####Ease of Cash vs Risk-of-Mugging
+#### Ease of Cash vs Risk-of-Mugging
 After mentioning the trouble of drawing cash from ATM you may think carrying all your funds in cash rather than ATM cards would be the way to go. But bear in mind that muggers find cash more convenient too.
 
 [UPDATE] I encountered some fraudulent activity on my `Citibank VISA` credit card 3 months after returning to Singapore. Fraudsters take their time to strike you when you're least expecting it. So although there is a downside to using a card on your travels, on the up-side unlike cash you can file a *transaction-dispute* with your card company.

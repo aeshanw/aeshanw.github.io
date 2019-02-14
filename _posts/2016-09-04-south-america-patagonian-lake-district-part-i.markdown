@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-##Bariloche: Argentina's Lake district
+## Bariloche: Argentina's Lake district
 
 My next destination was Bariloche, a city in the Northern edge of Patagonia, an arid region of Southern Argentina & Chile. Its very popular with local tourists in the Summer (for Water sports) & the Winter (for ski slopes). But I hoped to explore the lake district in Autumn which was considered the lull-period.
 <iframe src="https://www.google.com/maps/d/embed?mid=1T0pb-8jJoROvbBHpStQPVKPOgco" width="640" height="480"></iframe>
@@ -46,7 +46,7 @@ I was to later learn from a guide that this difference in flora was due to the s
 
 This difference in climate as explained by another guide in *El Calafete*, was also the reason why Patagonian sheep farms are much larger than those of the Northern *Pampas*. The scrubland is less fertile and thus `less productive per square hectare` compared to the lush grasslands further North.
 
-##A Little piece of Germany in South America
+## A Little piece of Germany in South America
 A walkabout Bariloche's *Plaza de Armas* (central square) gives the impression that you're in the middle of a quaint German town. 
 <img src="https://lh3.googleusercontent.com/TU-el4Umms-xO25lBRZqGdkfQQGN4vQG5e0GQR3rI8vhaiLEI1zx84vwr469XKC8thPZJBPPAC0ykvgF6SQf_HH5r29nlOL-FP99Sj5_qPeLYflWaR9_bDY7W6CUeudajV-QdhF3UAkBZ7UQMbQWMTUbvibOU4LyUlH-32zjpm0o5xag9uPbwoYfJPP6oW9e1ZahD_qh3_5o8fpTVsvnd4LPyzouHKXE_vPrlWmhf9NkDOxW0wy8boNYNz28ZMO4vvOwtaW_dJ9tqkhYub8ZjJlBkBOFAB4G6B2aWHqcE6NYthiLWCCbsaKsOetQc1NZS5Rg1i8RKbs8bnWONmGmhTa6sgID6n8ovR2noV_DCObRZxiDKF57YY3iKcAz_grQ_cvbG-cpNpR4sFPNB3M2qiP9iGGSNgvHh-4GgNUs7xEviThMd-NgUa6o819-egmIp2V8PasGG6g0vC_yGeHE_Tw1Gj6gUWvIW7PmSJEJBnuvTwUH_2eWhebFs5vyh3fosFp0-VWXBSg2dgIcP8_ArO9ENQ3ILS4YzwawGSdhyTgZetCIZk6HB4FbW6-kEE7VZqYKAZ7jyPjSK6KmNblz9fOesKmwWQaUgWrZ0pzAPA=w1034-h688-no"/>
 <img src="https://lh3.googleusercontent.com/52k11xqLX8K6O_Wt2J2exWf3T526O018xqHw6DsfBT8_msFkAR7lKnh_ZQXrfK0LC2QXFIFtCaGCunbSVw6HQbTFpDDvQqNbtGoZdBuW8u3CwID18TyDL6zHUDOvDg64TNPFmITOte3B3r-yEikbkBa1n1EjFcbB_cOFacW1Ly70rcqKS0qMuVSVzqiC8aZZMiLtKk5iXCi6NxtN6-FEBlTgrZJv3ZF66KjOolN2RtuvRZG37woqhyPofiXj2tk4SxV5EeqFgGEgDY5vFx4yRKRPM0Exo-6f0m1QuhAGAWK8-UN2du56FcdNJAL2aGG-hpcVjZTVzPSGzw8fxfS07WTZs8b4EtBn-Z7IN0Wzoudc2PQgTcw8OaPtT6_90SDt7QQ_3fbjvZvzESWlppEfGBn7wwn2yu5uvSWHkqyinxe4MR-77GxSCHdLogy-4an_41W_XcbaHnC9sFSyDCHGX7HBNTJN0HF51bbkjF32C4PfZGBja8YZc5rnNvOx0M-xUxK9HjF7u6MTZVMbNCIXzKUlQr8C9-vik7HIjk8GRvHSBJKavOh3GVXcXl1Txr0m4q_Nk0_G7UE6dwr8779ZjhMy1RXy5GFz-1s_2EgSqA=w1080-h611-no"/>
@@ -59,7 +59,7 @@ The  style of architecture in this part of Argentina was based on *Central Europ
 <img src="https://lh3.googleusercontent.com/JK7L_yMWjby_0qRDaVgpdUdMK7giRa6TLezmeTDbodz_9LBWL_q7bcHvnMIUnU9YzwoNSr5evkvNoALHM-yi00kbzIf_ArNQfQkvN-hsgO1kTVf3NPqMu3pIJ3wkju3ooE2A0ZkMggRgO2SnEp9JsjNShR79rqSL_lOautOZBXFc7DgSfTXy1clJLCZ9jekyyykvqL7KU8vKpPz6vXUT4hzGZrBNJokdCYPnRBoFffAnShKOHNxvXgweFbCgCYUsi0k9sAosbL6TWiC6mI59kQzFX1PP3PgKM52XcCWPA0D5aviJ1P5umq3n1XzNCsVp6oP3bbYtSb0AZMMTRVbARu3ySYUYTQsVgz061yXH_KG59OmBJYkxeG4snjiShaVbqHCfJ1tajyQTXZSq2s62MegIJilKSy-huBSVdluri8XE7e2ZOD-uifChxbk2hGAy7tNXDBZTMj86PXNme6Kr3iNMcoHBw2xfN4p7lRFW8wtWOKkXUHC-ZjA1OArQKNh8bCF3dpcA0yoXd-UazIiP6ZZEGS8F9ono1xSdINRZN9yPBE9CyTHXbVGc5dRQCt-DYKeqTm2jZk_OA_vDgvJ14Xgjw3SbP9DoYvb1hgmVYA=w1741-h979-no"/>
 (above) a German restaurant "La Alpine" where I dined on the 1st night
 
-##Language hurdles
+## Language hurdles
 I had a reservation at a small bed & breakfast south of the Bariloche town centre.
 <img src="https://lh3.googleusercontent.com/OHCq6i8fC3toFAKOwXY_Hec9u8odaVQzMoIlFBrXP3Ut7OILYilKIxrm97tcvoomRAEFBd_W68YYn9o-OPuNO7yfD0FfDFsgjUsLc8WyI_BkwIbHt1imycxi3Wv3RB8v3wLGhy-4RHLbgXTWorGd5UwpWT-KulOL6pGVP1HlUKun0NM2lCyevbVm53LKy7W4KuKcAkII6btb4FBlp6FYbT5G1enF7rxVc_Bg_V9JB7sx1A7FBuoso9jxkwQKnwHxkoEXrHaIeof7w0UmXvm49GxhfLe4tQg-Z04DggOqhyMpz-RriK6eMGhxLV9rsUdIU7TL2sYeZUn2oEwtJ7IKkANAKaUNfQMx-_HGpA3PEivnJl8qgRPv0U6xn0mRh36O8HDlTuB0WMQL2uGd2a4eVtg6BB7CbOBgoB6RrbBwXIrQJ7qyIxwCPqZWytXUHSmQXFzg2Z9QW_TlN2uInqk7jTlfPxEKJgUG57xgmCiZeba8NVUmSWQc74L6dLj7bSxUTvgaAynEW1qoVPmapj56okOhr01YxHstWwe12R-6_ALI9SoJfkhDuh3tNUtsk8Onuviv8BHez9YzD49kLDrLZVpJ51aItFaY1fWCmJS-vw=w526-h935-no"/>
 My language difficulties started as I arrived at the Bariloche airport: as I tried to figure out the price to town centre by cab (a nearby travel guide who spoke some English and use of google-translate helped). 
@@ -72,7 +72,7 @@ Finally she broke the deadlock by walking upstairs and repeated:
 and from that I gathered she didn’t need any advanced payment for the room.
 It was a clean & simple room with an attached toilet which included something I'd not seen in years: a bidet. 
 
-##Gathering plans for the next 3 days.
+## Gathering plans for the next 3 days.
 The local tourist & national park offices were kind enough to provide me with free maps and advice in English, on the trails available and the expected difficulty.
 
 <img src="https://lh3.googleusercontent.com/WvS0ZQIYN1VQFaWKsw63hZc_sxQxxj2V8h7FrIsJxULCYIq8KMRdujHDc8aMIbAG5r6gbsqkMOXJNdPUy82O-eX3xJuGvcLuX5ZUFtFUR4jzCMfAd8Opm3ii-gxCIcgczAQTijsmDcR-HAfktezqFSGOIZ47gCyRq-JvEd0NqajxN9uSZtGURYM7AGbTXeoK6o0u6WRH_-RauBZizg5nulCfidn1pDofiBynR-yOksX9E51KbOVro-XSzfmnEWtpjKadZXIqJucD0Qx8-0cms0oV3L1eJNfG2Q8hjD74D8pKmEmZhN8hFDFAlJadPpcuhnrr-NZJfwIKsKsfRW37GDIu8gUsx_Zmc1ZFMZYrv6L4GUatOoBODjBYVzHLGK5aL6M47e6zKkOs8Bb7MEajCi7V0TVPNpQjS_hVsseds_Op16eot6533fQmM6nFSjks_hlqK14vAPn6v4oPDBjlCQGpLTNScGOI_HUOcTs6w4PzdGPZErFln-09OYBdAoQopwFvdlu973raTYQxUARwyhB2n2U_MC-AbjdTD4h5f_5MBDevFj-4NDpnt12fQ5VgDvgY-lCawpPm5owKHylEHG0SnwmKPxHdM14szhiRqw=w1560-h878-no"/>
@@ -81,5 +81,5 @@ It's with these guides I proceeded to plan to hiking trails for the `3 days` I h
 
 After a quick walkout in the town centre in the last hour of the setting sun I walked over to a tour operator to book a boat ride to *Isla Victoria* for the following day. I was thankful that they accepted credit cards given I was running low on cash and the `OCBC ATM` card still gave errors on local terminals. I was going to be very cautious on the use of physical currency till the ATM issue was [resolved](/2016/08/28/south-america-budgeting/#atmissuesresolved) following night.
 
-###Fixing my boots on the move
+### Fixing my boots on the move
 The sole of my hiking boots was coming loose during my Iguazu trip, and as I was expecting longer (and more rugged) walks in Bariloche, I decided a quick fix was required. I walked into a small street-corner shop and attempted to communicate my need using a mixture of google translate and miming. I got a locally-made `epoxy resin` which I applied on my boot soles before turning in for the night. I had a lot of walking ahead of me and would need the rest.
