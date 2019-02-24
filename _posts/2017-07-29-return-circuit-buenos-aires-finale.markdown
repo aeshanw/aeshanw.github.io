@@ -7,11 +7,11 @@ tags:
 - south-america
 ---
 
-#Wrapping up the trip
+# Wrapping up the trip
 
 This post is [a continuation of my earlier one](/2017/07/22/return-circuit-buenos-aires/) covering my last few days spent in Buenos Aires.
 
-#dino museum
+# Dino museum
 
 I had originally considered exploring the dino bone dig sites at Neuquén, Patagonia. But it was too far away from Bariloche to fit into my schedule. 
 
@@ -47,7 +47,7 @@ The musuem also had some activity areas for children so this was a well organize
 
 By late afternoon we had our fill of dinosaur bones and we decided to move onto craving of a sweeter kind.
 
-#The heladaria
+# The heladaria
 
 Ice cream is a serious passion in the city and you'd be hard pressed to find a barrio lacking one. The ice cream culture here seems to follow that of the Italian gelato probably brought in by Italian immigrants and encouraged by the abundance of dairy products in this country. *Dulce de leche* is a popular breakfast spread in Argentina and the ice cream flavour is such as potent in the sugar punch.
 
@@ -67,7 +67,7 @@ In any case we spent the last evening and following morning repacking our luggag
 
 Furthermore I'd covered the main points of interest in the city and felt any further travel unnecessary.
 
-##A memento
+## A memento
 
 My co-traveller wanted to get a [maté gourd](/2016/10/28/south-america-argentine-cuisine/#matethesocialbeverageofchoice) with a silver *bombadillo*. Although [yerba maté](https://en.wikipedia.org/wiki/Mate_(beverage)) wasn't easily available in Singapore, ground tea leaves would work just as well in this simple device. The bombadillo seemed standard enough though a gourd which seemed authentic yet hygienic enough to drink from was harder to find. 
 
@@ -75,7 +75,7 @@ My co-traveller wanted to get a [maté gourd](/2016/10/28/south-america-argentin
 
 A wooden 'gourd' was decided upon rather that the hollowed out gourd that was the traditional choice ( the bottom of the hollowed gourd looked too unprocessed to be useable).
 
-##lack of savory snacks
+## lack of savory snacks
 
 We loitered about the airport cafes and waiting areas until the boarding gate opened. We looked about for snacks to bring back but found nothing notably unique [apart from alfajores](https://en.m.wikipedia.org/wiki/Alfajor). 
 
@@ -84,7 +84,7 @@ We loitered about the airport cafes and waiting areas until the boarding gate op
 
 Which were very sweet. Unlike Peru which was known for its variety of savory corn snacks , Argentina was closer to western snacks which were easily available in Singapore and not worth the hassle of bringing back. In hindsight peru should have been a good snack shopping option but then again with strict food checks coming into Chile or Argentina we couldn’t rule our complications in smuggling such snacks through.
 
-##Homeward bound
+## Homeward bound
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1yi-Jtt2gG_NKO8KwFPabiifYttg" width="640" height="480"></iframe>
 *The route was essentially the reverse of my trip-in a month back*
@@ -99,7 +99,7 @@ The stop in Dubai was a stressful one in terms of the sea of humanity that passe
 
 After a good buffet and fresh shower (which required me to use the public shower as the lounge showers were crowded) we were ready to continue on the final leg to Singapore.
 
-#Retrospective
+# Retrospective
 
 And that about sums it up. A month of some of the most exhausting travel I've ever done (and probably will ever attempt), but all in just as fulfilling as I'd hope it would be in the months of planning I'd spent on it. Some might say a month to cover so vast an area is insufficient and you should trim down the itinerary.
 

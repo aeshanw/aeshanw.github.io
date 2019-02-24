@@ -7,14 +7,14 @@ tags:
 - south-america
 ---
 
-##Last stop
+## Last stop
 
 The final stop in my 1 month of travel on the continent was the Argentine capital.
 
 
 It had been my entry-point into South America and for reasons of cost & flight-time it would be last destination before the gruelling 33 hour flight back to Singapore via Dubai.
 
-##3rd arrival
+## 3rd arrival
 
 Our cramped Sky Airline flight to Buenos Aires was mercifully shorter this time we landed within 2 hours of departing Santiago at EZE airport in the late afternoon.
 
@@ -28,7 +28,7 @@ We exchanged the remainder of our foreign currencies at the very slow (but provi
 
 We then took a taxi from one of the official taxi operators at the terminal (you could try your luck hailing one outside and although express kidnappings were rare in Argentina we were not in the mood for trouble.
 
-##Chic Hotel
+## Chic Hotel
 
 We picked a small hotel within walking distance of the city metro and the natural history museum which housed many Patagonian dinosaur bones.
 
@@ -70,13 +70,13 @@ That’s not to say Argentina is devoid of problems. Its still recovering from t
 
 We encountered a lot of school kids on the day we visited so I'm not sure if there is ever an off-peak period for this part of the city.
 
-##The rose palace
+## The rose palace
 
 <img src="https://lh3.googleusercontent.com/1kemdxkvc-qYbmkrkBCuB6khoo5iDRPYjFYO8NzVdjuxRemXF5KfPddnSz8LC7sb2I6qsVUDgYycWoxlLMhpl6isXxSGQ8YaH5xe67v3cdMqLyMx5XyDQRijMTsK-zFDFbo8Szipi-LoUqowSDK7Ur-mmRhFYF_tk5mbFZpKx_b33l1v41cmdeE08InwXD-RZ3jea8O5XYpfge9f3f0FWMj2_uLv_Sep4aNa3LU3osh2nNJ23UCeS0MvI3ep47g9wVYOT3J6J1Lw4HAPGkDS-UFK9aUXvLlsRT0KvfJ9cb2_IHwoh6camLiC8WbZ_bBdrE6S45OZ1yBWPcTL9h13Mpi5R9WKRB4i2zovBGFUyVA4XJVzl5C7Wr-cJfiRvdUmbseEHDazZZhpiuPPntQR8PpPV-AkjVDe5L1jrMTfZKtIPYSsp9-THM7bbSqJGukm9KOFV6FCbWL4HHg9uVYLpo3eGlaQVQMhLoxGDFejrqCvIM78GGLNB3Szr03Yf3o-PsLiLFDbAHSY3Y4k8Kgmcv-CxG5aJxYm2ev1Rx_Cu7FkXn_leFG4Hp-KFYks89kv5qthafDllHvvY-3BMu16Yvka_xOm10NnOEL83EydAKytoRhp9ui8SRpGoWO7HVn4hMIkmDYpKwoDPbt8yIVugAQZpmxs27HuP6u1UdUv=w1307-h739-no"/>
 
 One of the most notable landmarks in the city is the presidential palace (Casa Rosada), a rose-pink mansion which has housed Argentine leaders including Juan Perón (husband of the famed Evita Perón). The [colour scheme of the mansion was supposedly a compromise between two political factions](https://www.lonelyplanet.com/argentina/buenos-aires/attractions/casa-rosada/a/poi-sig/394473/363005) at the time, one red one white the combination of the two resulted in the current colour scheme.
 
-##Plaza de Mayo
+## Plaza de Mayo
 Nearby was a statue dedicated to the founder of Buenos Aires, the Spanish explorer Juan de Garay who re-colonized the city in 1581 after it was abandoned some decades prior by the Mendoza expedition.
 
 <img src="https://lh3.googleusercontent.com/ZbHamjhXy7mW-jy0k-DdQhn_5_VuXdQhY4XZyKe_qJFAXylgMUJZwQJr-PrZBhDUXOfHVuFsVeSWMxjjDQTQpLSqphH6eZD2GVoBRPhMi6D_ontfdlm_D5ZOHd27A7-rGwRE2_aAnx_cgG_3JEdd0vhUV5G7I3l-xbwG8F5BZgE7C-lXxpJ-SdcwYMfMK03yXj3hAfp3VOG_cfXlkWiJXuDPiLvcG_TCM7VOOIpZ2afP74ha8OQzD1OICmLaBrLXRlxci0oNsyJ-A8Yajw9wei8lT3k52RDdrHgKC8SSX4Pp71x4-p44R20ICLu9n9GSuJOlffqzjIrXJrCwvXyXBOakLWb2pGJs-JnaVNoQH5rlsj2ANeydkBGFeBXSd201U4u-cROlrW_o4Yl1pNIN010RpFoKt0LbFydBQ08HJmx8L4MhNITlByu-AnLa18It683E5-7yy_mZYbYJPDaOdImRubqylfuoPqyelxY2tlgxPH3HTdwACiZY8cB4Q1gnMODxJu2KqLqQSsRTH8jDhMgl_Bj4Xa0yrsGx40V1TJZczFSBdc6Du9fBV-B6TtMmOty67x5bk0-zz9_pQY9c2KDDnD_CllHCnSLbIdva4j_mYq4hN-C7DykP7hxprI8GHTa8-WTNoJ4aAmIvbDBb5QK2YdbGILcPlcEpSEc=w548-h974-no"/>**Spanish Conquistador Juan de Garay**
@@ -113,7 +113,7 @@ Continuing along the street opened up to wider open public spaces festooned with
 
 
 
-##La Recoleta Cemetery
+## La Recoleta Cemetery
 
 Now many people [wouldn't consider a cemetery a tourist attraction](https://www.tripadvisor.com.sg/Attraction_Review-g312741-d311760-Reviews-Recoleta_Cemetery-Buenos_Aires_Capital_Federal_District.html) but this particular cemetery housed many mausoleums of the Argentine elite and it seems like each tomb aimed to outdo its neighbour resulting in magnificent works of art carved from the very finest stone.
 
@@ -137,7 +137,7 @@ We didn't find [Evita's tomb](https://en.wikipedia.org/wiki/Eva_Per%C3%B3n), but
 
 <img src="https://lh3.googleusercontent.com/LjmSKR7KmInauTJp-Gtoep01Z2n2I4eRXVA5HOVz4EvruEVFG_iGdPlH7wgBeh1az0wwAmWX0fxTAnn2ZV90LTbvscYP_tPTjUmo1d1zJwgVbFk8FwWCKYh5R7J_XDJ_-fdZ1U73VOu-6Wdm6TFIEvL0QS_HaxtAkkTRNdwruVg21zT3LXkyO-uIXqUMYZdSmEQzSCvDSouckQIk64EsKfuOahIxuV-5_gjTfbNT6kNkH_VGW44mzx7_wmfS2gCXSQqOa4LuJg7koCXps_yg08u1QydJJwL8eH_SXncpA1QYFeX4lly4ctDh-bLpv04FbxQfzRsSMNwlwlU6H0Bpdx6oc8l0XXiXGE_Sbx5i-CQ3Hho3FOzR7Hb2MdDA3YcQ6_fd1FQfHjsMlyk88dk4UhVw9EROVbyah1cEW_GNXYfWzhxTUUv2C8zrlTWiaEKHWqS1NP6qlRTQmC8Yc1tiCXOEtw2KxLJT-7zMvT7FypXjKWl-y2pCKPSo8Ps8_OcW7A3P5FH6OafxL_G5Xp2elKASRQlhZ29eKXK4jQHmYxyeLnb51QD10FSN6ZIY9_g6CZfsy5ujsA58AG6WAvB7Dy1qJgcBf5YMpJxGMaVza1PrC-Y=w416-h739-no"/>
 
-##Conclusion
+## Conclusion
 
 The next sight on our city tour was the natural history museum. I'll cover that along with a closing of our visit to the city in my next post.
 

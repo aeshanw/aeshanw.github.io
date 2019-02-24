@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-##A tight flight
+## A tight flight
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1mHWabvjivRuEdSYsOW7X6vd7rXI" width="640" height="480"></iframe>
 
@@ -15,18 +15,18 @@ Our flight from Lima to Santiago de Chile was an early one as it was an internat
 
 However on boarding we noticed that the leg-space (rather typical in most budget carriers) was a lot tighter than our previous flights within South America. So it was an uncomfortable 4 hour flight and we were glad when we landed at Santiago to stretch our cramped legs. I wasn't aware of an upgrade option but given the duration of the flight (almost 3 hours), longer-legged travellers might which to buy extra leg space to avoid the cramps.
 
-##Smog screen
+## Smog screen
 
 When looking up photos of Santiago you'd see a modern city with the Andes mountains in the background.
 <img src="https://blog.internations.org/wp-content/uploads/2011/05/Santiago_Skyline.jpg" alt="photo of Santiago mountains"/>credit:[interNations](https://blog.internations.org/2011/05/founders-diary-part-2-santiago-de-chile-may-2011/).
 
 Unfortunately when we arrived this stunning backdrop was obscured by a dense haze with a yellowish-tinge. The taxi driver told us this was caused by air pollution, though I couldn’t discount the possibility of some seasonal climatic effect, like in the case of the white alabaster skies of Lima.
 
-##Checkin
+## Checkin
 
 We booked a service apartment at [CLH Suites](https://www.lonelyplanet.com/chile/santiago/hotels/clh-suites-santiago/a/lod/61f35c1a-6368-47cd-b4cf-3e6e4d6b877c/363286) which ran a dorm for backpackers below. The hostel had bright hipster vibe similar to the hostel I stayed on [my 1st night in Buenos Aires](/2016/07/15/south-america-day-1-a-rushed-transit-2/). Though that was an old apartment building in the town centre whereas this was a modern building. The common areas below was noisy with the chatter of backpackers of different languages as was the dining area. We deposited our luggage in our surprisingly large apartment and prepared to head out to explore the city sights.
 
-##European character
+## European character
 
 <img src="https://lh3.googleusercontent.com/YwobcrC02EDR8AYESKoNmI_8NaBuUtKUGeQvI2l_IcoIDgDYL9KrTM4oqZkQfckg71NyHACw_K9wKa_k9RVOYqZ_jvEYtVHi7Q26Lg2ug9uq4UGuq0wgCZYOiYPKy5Zfggj0541wffjwyvca51dCRt-omJCV3_hhN9tJIZg8XvT6zXXOO53Ad908_9Jubax1LRE78jTEJNZ8NQOhwBdECTBfhq-J4lkj5CxvlB00jBMy3g0VOFCpUWCyNMSMFxa0L8RCJ5Yvh9uvtz0seH4s1enzbRjTRh6SnVIok6nSDwmZD_4856EFybllCJt1-n8A8-TuOBk8Jp50H-MUKDz2samN9nnCdruyh7V_CccsjDMpceaI-vC37BBcMypf1UD9eRlcj1kt11aHroCAip42F3epqogLJp8hcnoz5S0kmKluSIZ_UONsx91IYJYuFCDQOf9pXaW0_vZ_bBPS0VQ4KAjSab2sD3-ChElsO6uNC580tt0EHleGKpobEdEFNM-Lh05y-FXMgzCKfzsLGoTR-Zty0gBcJgcojf4qY4aFssenEdVTQAuDErpO3bX7OTqJ7_cW5rcSsqLsaITISOFYztwVrqFvkEAJuEszudp-G-eV-NXekt67b1Q_g6R6xt6vVAhZysE_mxiEwDpbbYZYBdbBVR7UCYw4F2wsQWs=w548-h974-no"/>
 
@@ -38,7 +38,7 @@ Like its eastern neighbour Argentina, Chile was a mostly European-influenced nat
 
 <img src="https://lh3.googleusercontent.com/A-Rtk0V_yTg2PGm5Qq5lRMJ1GpBqJgYAh43bCItDUoUK0KvH2igwmu0iOdrUnxS14oBCDCsQ_slJfoPm7QpR_rSMwr3Yf3aM64ln_fGjjKosdBi-WRvrMd00yRcicjfJXZZGzcHSTvzrLlJb0au46UCky11tNuhFbY4tZUg0weVtb9ZsoTe7mbOCV13OompAE0spCkDbJB6qhwpBsXk77B9Ow3TtVuZne2t4tuEZAQBBMcuqetT9jki3TyNIH52ggOTSjP8bQANs6S2jLQ17RaKLpniynsjSFwkoMgYSSS0Khafux9YDimlnRn3knHC2j-umpL5ynNTcq1ngVngVnVm0rBio8u-cyZcWg-MA2KIMxo5nIuVbysI5eIfjY9FUMi3qhWQDajJU6xHIHZT7MYRWGWDYBSxvgZ3PKfyjhiG0pF9TD7ngEtmzL_oRI-QMx5jLZf36xDijFlGYBn-L7wYZ3qgzlsiHgIMiLx5MRwt6Ty42PCl85v3ex92YZ1Nv6-OHn25QiZiA_VoeRasdgPXxvsyFeaoRb0g9h22q4V3-OhEsVE9T4vzi8TIJbVtooodmmJcbda9YzjV3V5x3hw0B5wi7f5qwEUbv1p5P0b-1Winq2knymdj0OOmhAtOqpT1WvJph2GwGtobDjd8APt_W2q3hqx4w8TUhNWwo=w1732-h974-no"/>
 
-##Good wine and Meats
+## Good wine and Meats
 
 Like Argentina, [Chilean cuisine was well known for its grilled meats and good wines](/2016/10/28/south-america-argentine-cuisine/). There was no shortage of dining options on our walking route through the city.
 
@@ -46,7 +46,7 @@ Again cuisine in this part of South America had a strong Italian influence given
 
 Unlike Peru, Santiago's dining options were less influenced by native foods (like quinoa, alpaca meat or a wide variety of tubers) so probably more familiar to the average westerner.
 
-##City park
+## City park
 
 <img src="https://lh3.googleusercontent.com/r7otRNrOwiN0hFv2vBPB2Xloq_osSrQLQ1vwoAstMKzaXgxSMOC7ZKPhhMOhONZlAwt2lmK4eSHG1CGN5yMROmENS8Ib46rZ-IdBU3eIBEh8aPgkhDizM7vu_RMAcfqeESP8tkDbDhW9-HUvbh6Cm9Y8jE0J8FPvQ8myBbj4MZOM9o0qep6zetPR5blJLZ9cSxylyhT0wLp-DZ_Vx8WvMR1eXiJ7FRy9AgSln92wlnBkiWcWEEDnCD1OFNiOi6YaprwXMpH961F3aX1MmwhrV-O54CW6WdExjBRMker8_y3IeP4D0KNmp9vfGEk79xsuoma2-73htf8yqfSY1C5AzxaoLL2_bymuG-2yJ1gMk3JsDJrxB69vhr_eAn7zjXYVcVgUMxMS_Wz_mV00k7fuCPvs6YkLyHBhaGewa0224UZOYS2QEg8wROBp4jxFvvrtxfby91fAi-4SFUMDu9q7xpiTbIm58HOoECCeiZ2Y9J_00edl_2-80TRiknghKi3si8v6DVT_tBF4ouC0CdBtq13Z8C1Qf9dj4lGUS_8H80Y3cuC4ij1nmVrJhqU-dvlHvYy1QAUuoRLp2p8o4chilGnEjFalo-Cj0tWlPuballmvB95NUDfYLkifOaVgRjoqEzwZUOmQFPCBwKi-m-N4iucqjR_Xtse_e0z0Ya_Y=w1732-h974-no"/>
 
@@ -60,7 +60,7 @@ The slope ascended at a slight angle and made for a comfortable walk. The park w
 
 <img src="https://lh3.googleusercontent.com/US9572HOZn0Kxcv4Y_uh0QOLIp4lhxjx0zfQ4BSmCn7DZgkIXigvbwiWYtZ5wYbDAyzWiuKfj8FjPg1UzhHur0trx5GfNOlSD3JXuqoJxf00xGMKang3WGf_Ah8AfW9bTP8a4qfLfluPIuXnPBXLCa-MCobF5qKJTjdPUlO9mSfYSDIuz708H2Y9xEWLhhOkfcdIZBjwD_gUVBqBIUFU8pHahKnU_5X_dENyqW-Dnqv6PYg5GOExMKqtgPv_SLE6X8Bjepj1HI1wWgcS-RZJSbgfi7rWYOh38oFg5eJB36XCOfrDRlVATzLzKzjTj2-BNNla0LNWXAD5ekWQgKkqN9vrLLtwLa6p148UTqP4HW81OtZ5qOw84EGNs6xzONiOG0FPo7y8oxMASZNHqsHyVPnqAC5L4MlujQCC1Izl1-YUmZoV678vywMA40LEkp_xphRxVdYwkI4YGeH_2O3CVge1OBNbbvwLddv64aADa7TwwDG8sNb7TS0DT18bCKnjGj-tOZcU4EEF07qNlQxPu1c5WHc8YJ6mXQ1LtLBjRb3IoNUMMOgDmMZUuWWVFi0f8-Js3Gv9MaLFUnALa69SlREEBd7MJV-GCPuMCSyLxhRNZtDKpY_-UxsdYNBsfJ_JjkH5FQueDyIxk5hREXeNKWiopRhfHDkNkdh_fKR7=w1732-h974-no"/>
 
-##Plaza
+## Plaza
 
 <img src="https://lh3.googleusercontent.com/yczA74aOqOMZSYX01R-V6cXYdS7P8gEqmvjlQRCg1vrOOAqRAOhdgToCxJpxkwoVB9VlsBUlZ30o53rbLFicsmR8TX6yoKEhQ4ghmd6aYmiE8uoxRasyo3Aii4_mSG9bGrNkpYtjfvrK-QzIgS63IimbS9oor6NjJFLUu5DF6fG2a3Q3AYmWvZmZ4X-ZYOHmRnDN-xic4_3M-eQ8Uq3jOvD0DfA6juyBGC9pgomc49_veCesmdzFMWYCKck1T1nrgffZWQZezmrI3Buj3G-dbudPkHPR-ou42We-7LaqrRy80Ogmex0U2XCZirI_UMiK0FM2DKe5But0yQV96Y0r7CTkka6VZkM_5PWMg4nuA4txPVmeBVjTmyHe50BsmcdeJJnO7ta-PkRNv02-f3ze9AmbjOFfRrOSpezodYlhbPjbyzmUA2cTw-NmqqFjw2JyM8c4oUC3ccR7Qyq25G3qmHHg8k5FRGsRt3AU09bmOx-jbY1oJSv1UdNeo5IEb4tb_QkKHKw3eSwkfgY-J3WQFy_fhRDDntxifgjqNf8He3ZOiF7EL6qsWV_YBThnzO39tycp5sgdHafNd2GAsK4DHbvJUZ54QoMhLyR6S2dLyQDengQfvuAschzE4SUDPM97jvXCx8FrJ0Q-41qylNSmyqyGhM0KusWe7dG3-n8=w1732-h974-no"/>
 
@@ -76,7 +76,7 @@ Some mounted police officers were in the plaza but the air of this city was very
 
 <img src="https://lh3.googleusercontent.com/zRry8NM8rjj4Dvn1Z4rK79vNkDQVzUoMj_s_HU84WhTpeDEo43P6Ti3CQvFOwi9WRn1JTkwjbdxPGVbLXY2FMJVsKH7BedVWcR5yBABmjlitkKbQohyl9PEB2s1W8gli9XgF5neYGpkiJBsghDbZXqVm_0TMEaPB2oFlWZiFuwfdzi2dwWtS3ldg2y2BGIHlQF37xt7B8M0edoJYZJ2M78700TvFbai5K_0hW6unHuV_T-wD_Ia__Zjq9n_tCSly4y8QNe0GoWKVK1fkoWnAXpK_vPNU1wapjwXiziiP9Vr4hEhc3Kf66MUEgdy7ZIenR560-CBR1Tc7KKIBSaLTX84AmVp_CIf3lX2WANmGJSh3y6pSB4vauhXzfJ0lQidqo5_mQGMRJ_8JOFAquBCvSRgdw6OjrkZsWIXkDXerPungWFaE87oIAFhVaa5b4OPT35VGVJKfynzYMjyxz0xa567qNPZXwxTHVlfoZFB4j3WjKPueqPX6RZp-kfdOaJnABLtZpIJVU-STr_EljN0cuaRxXRlPdA7W-obec_QBnMnGRqV4i2KH-hVbXxTc0RzIk8FMyH55r84-Ii13S7uVTIQ0yDvvDk9PQf0YTdQDNvaayrfzDmmcG21eT_4As8aFUmxCeXoQVCW3QutOsoS1tKizaEhGwRI93D3SxMI=w391-h695-no"/>
 
-##Conclusion
+## Conclusion
 
 We only had a day stopover in Santiago and people with more time on their hands would probably explore the surrounding vineyards and fine national parks outside Santiago. Chile's infrastructure was quite modern compared to her northern neighbours and appeared to be economically vibrant. Crime was less of concern here compared to other cities but the usual caution against pickpockets and muggings should be observed.
 
