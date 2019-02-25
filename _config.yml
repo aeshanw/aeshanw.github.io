@@ -10,6 +10,6 @@ theme: jekyll-theme-midnight
 # Build settings
 markdown: kramdown
 
-permalink: /blog/:year/:month/:day/:title/
+permalink: /:year/:month/:day/:title/
 
 google_analytics: UA-0000000-1

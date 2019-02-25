@@ -22,7 +22,7 @@ Our cramped Sky Airline flight to Buenos Aires was mercifully shorter this time 
 
 This was my 3rd arrival at EZE International Airport. In many ways it was probably the best of the airports I'd travelled through in this 1 month. It had been recently renovated and boasted a very solid WiFi network.
 
-We'd [transited through Buenos Aires airport](/2016/07/15/south-america-day-1-a-rushed-transit-2/) quite a few times on this past month of travel though on this visit I intended to explore it properly.
+We'd [transited through Buenos Aires airport](/2016/07/16/south-america-day-1-a-rushed-transit-2/) quite a few times on this past month of travel though on this visit I intended to explore it properly.
 
 We exchanged the remainder of our foreign currencies at the very slow (but provided the best rates) state bank money exchange which was the only *cambio* at the arrivals terminal of EZE.
 
