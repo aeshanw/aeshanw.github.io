@@ -36,7 +36,7 @@ Buenos Aires was a large sprawling city which covered a large area and as we wer
 
 By the time we checked into our hotel it was close to evening so we decided to take a short stroll and lookup our dining options in the barrio. We settled on a simple café and settled on some meat dishes. We didn't plan to explore the city by night so decided to retire for the night to rest well in advance of a lot of walking the following day.
 
-##City sights
+## City sights
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1EAxHlVpGpNSoF6nG11YuMshFrHo" width="640" height="480"></iframe>
 
@@ -56,7 +56,6 @@ Buenos Aires has been referred to as the Paris of Latin America and much of this
 
 <img src="https://lh3.googleusercontent.com/0Q7i-p4wmaMtGLzyI5tWiwAvA8KupLIWzniztQ_dKa6GfH06GtFHoTL7gWCTieJ2zr8LpPupHRnofCZF0StYsWkEQeQS3BS2rAN9W1IUR53X8VNN4cJG-JzS1qNG21eEfA-mfSRy7ygAhIh2cy0H6XqJECSpx0QclUOWsSU5JLMvscw_whallqOFBzNTG9Y9Yu3p5jLMcq5emKFid0F2ZcIxL7YTQZsMwzuITCRG3At0JDP8BLFoJuUdTYSEWC3ETDeEgrVZJ2Oac1sdPgQaZ1QuUqA3NFPvOnov6Jp7UxkRNB-nAIkWKatddpUsTg0SBs9hLoqMZD3Wka5ZG-GS27XML5vK3ldsPBkpkqrVXD23bvyz4hJqAzrTsZSzsA1QK0xQih110umpx2N7IqosLk4TqNnYn2hVqbJNm75_0ZbOc_IvDsbTCo47f1aipf06Z6d-aSX8t6a0nrjMRjmuecv4wVf9ACVcbDTo-zwHfOOu-uJqFk17981nVQ-sTL0_xUnG_MSagg5QWrHtUzpaE0OhsQnz1nPwKtKdVxvUd_iAv5NXnRhdLeLvw-7GrJP75genI7_MNoIHZdr7SccnhpxSa5UM6sfpP2HPuswz93iVsx0FeggYpD9Q5BNSnl8IhZrCyP4DrkUVXLmByDWPKBrgQt-IrexHhjvH0mM=w1314-h739-no"/>
 
-<photos of city buildings>
 
 <img src="https://lh3.googleusercontent.com/s8Rb3aJEL_-ovSSuM0KFmzcQAOb9ODhwCtUx6uy_qztEhBc8l5YyQob--XbbB_dHpW71xJ79TAEd78fr1YOlja8LSB9hxsicFZgfBlaqSP7XdiyjxEscpZZEqS44viRIpBSHWGshzJ9W5-aSoSG5x6DDo3wblEGUYzWJlOgREdc3nJFi339RFihjg4h7RTPduu6H0wVOp8PbF-hlZz5bNCF-3yk8uI9QcPTdHc_0TK9hA48RKbTJ8CjO_iDwZjs66puSEIuPvkE4e2-EVFs-UmtBEkd61Qbv2ARX-VzkVnVl6POx8XI-CM0f2X7HvhCf3E7EY7CMn1E8_rxJkOGYW8jy1TbWe9siB0FgeQ4Cp6rncsoJvNOkWqsBdeMz-QUYu06b1PBR9Tsdja7wKaU-NYrmsNu1YCUxR6Mysyw6LgPeLQRMwhJQQPF-wF3QZkwuX7CpCAjRKi_7YPIKffT9Fx_BhEgiDvfvTi59DqvW-dsDjMFLolVm9yn3Q7y2MenkV43Ahebalolq4ZTDXADJaV_98MnVQwiBl8maklqY_6et-pzImPebMP6juLLF7FiixYFZyeAoZBHTEAJCxqyabbHyx5S1hcBz87BetQmMikEFnW_ZrQPYXJeHzsC0lZSFy7EArjNGT2paKX5aegsMtlqIblOpT4SHbV71Mp8u=w491-h739-no"/>
 
@@ -65,8 +64,6 @@ Unlike an ancient city like Cuzco, Buenos aires  (like Santiago) can be regarded
 <img src="https://lh3.googleusercontent.com/zZzibwq1M-3ymhOcY-z2CAYbAKj1iiZOIhhNa_qUC964uALvAAdAPainZ7EO7VqMeFdm9UQbWVrUQA6k7FRcunStIdxjNgF-a3juYVzGLbaria3Bo1JqsYg53FizppxhKqnGhSAvRw4nfjoQYlUbwsqsV8gGygq2kOaXjv-DThGHCw40ne-TAARaBPHjOBAalGM3S80tnsmQ7misx2Tm1tokjGYRC-KV7zslKzwDGvy7AX3yoScpu8xo0Xe2sqH_UjPNKPYjDdqNUp2VSU-msgs-1U3cNlsdlx9CXZbm10sWE4FdNX58CQnPfEUmzUz_NLPa1poa_FxLtsSAygL_WeBdjCqe3Kk0b9wjg4KSaqE1XJ2yzi4agh4DeZfKrhR28U5PNXdswi4-yEwHdNTj7k8QmAIwPcZv_TzvjrbZB9GE1MyinQe9QVv_nhgK8cGXqw07HJ2SWXTG1aegga6SpC6MTDlhluaZHzV9QPA3z4G4ZY6mKoD7P3OfLhNVPn9xI2Ta_wnyPz2jHpmhTpO4A0KFjySjRF7SuyHqz7x0dAIckt2tR1nTihcosQfUAtbjyotqvy7GaruOgDb7kJk1q5VkGv_etJ5j0pN8sH_xng=w1732-h974-no" alt="transport card for metros and buses"/>
 
 That’s not to say Argentina is devoid of problems. Its still recovering from the scars of decades of dictatorship  and the more recent economic crises of the 2000s. ATM withdrawal limits had only recently been increased after the new government came to power in 2015. At the monument in front of the Casa Rosada we saw plenty of banners and proclamations from the mothers of lost people, victims of the dictatorship . Though unlike Bolivia the protests were not known be violent. 
-
-<banners>
 
 We encountered a lot of school kids on the day we visited so I'm not sure if there is ever an off-peak period for this part of the city.
 
