@@ -7,14 +7,14 @@ tags:
 - south-america
 ---
 
-##An Early Start
+## An Early Start
 The following morning started early with the typical continental breakfast seen at the other hotels consisting of eggs hams etc. The only notable exception being [the local flat bread, Pan](https://www.thespruce.com/sweet-anise-bread-from-peruvian-andes-3028947).
 
 As we'd be returning from the tour later after the checkout timing we checked-out and stored our luggage at the reception who tagged & stowed the luggage appropriately.
 
 We were met by a member of the tour company who lead us out to the tour group.
 
-##The Tour Group
+## The Tour Group
 
 We were lead through the town square which was unusually congested by what seemed to be a school parade.
 
@@ -24,7 +24,7 @@ With some difficulty we finally reached the meeting point up a narrow street. Bu
 
 The bus arrived and we were lead onboard to begin our tour.
 
-##Itinerary
+## Itinerary
 
 The guide listed the items on our tour:
 
@@ -37,7 +37,7 @@ The guide listed the items on our tour:
 
 He started in Spanish and then repeated in English. He seemed pretty organized and knew his history quite well.
 
-##Stones of Saqsayhuaman
+## Stones of Saqsayhuaman
 
 Just outside the city is the temple complex of Saqsayhuaman. This is a huge complex covering a large area of land, tho now only a shadow of its former glory, with many of its massive stones carted away by the Colonial Spanish to build many of cathedrals and public buildings of the Cuzco main square. However, much of the structure still remains and is a testament to Inca Engineeering.
 
@@ -87,7 +87,7 @@ We boarded the bus and proceeded to the next sight.
 
 <img src="https://lh3.googleusercontent.com/9KD-B3YQsEow56zQ14vTWBbjuXWbNoW33D_gdqLaH2EFpYAno9-GsVf0hwCzBWYpc4U995OQyCATo-wBTyCZW9RyGCzFM3vZvyhSDTXIjXnVoGJT_KQXfD_SNApDi0LTX0arMHKo5q8dLm2_L3MhkGgb8Uxp9jZwAgn2OS1sVw87qD3sJ5QY9lk1N1YasRm3vuaSDWVUqyQnuUYkf8nLPzgiR_PXU7Y7lQ0hVfKTS-uGk-BVba4zzFBaGNG68cGk-zil96Z_xZo8opABGEruLFdo8zZFXIgpTX3pq4Y25zemDrURzjcQX6TaUrL0L6w-vnZ565xahNZwoZreh_wSN0DEw8VbEqQHABKA4cBZFUBuIsz1QUJvs9yv2fvKAhwdnMqbkrDSsFDGqM0N5pG7NLOm3PrqdoZ2ZLnZ0Zkw8QiJ0rXXD8qjWB2H_h5St90R6BsDZzj2izFQoq02U9TR9F50NK8MGdmhne2ewj_QtoDY3B_cOyudDg8kwJYy5IvSuvxrd39ECx3V6FmK6lvZwSRwYmH3fUPIFj1OVgn_l6BYn0mnb7Dk3r9ySQGXZ2Y-Nqc1SUEWOBKaDZdTTfHx3tYAjtmsPlLaeGTWIM7UYwSqMOrXtWgfZvDldF3A9XS9iyxquiGlTNttseb5xHMCEDv8rI4O19Ri864=w1467-h974-no"/>
 
-##Sacrifical Altar of Q’enqo
+## Sacrifical Altar of Q’enqo
 
 This was a more natural structure that seemed carved out of bare rock.
 
@@ -115,7 +115,7 @@ It appeared as if minimal construction was used at this site and was fine demons
 
 <img src="https://lh3.googleusercontent.com/viG3i7Q25FiIrXKXKUAWRqg6d81NlL72KSN8Wiht-pwW150txPsdlj_rXUWX9NZLCXawj8XIY-Dsfs0HF33mvq5nuJcv_wFX35vucahsrPpVy8_ZLD19H8u4nfuTmidDWqv92m3gOB2xBfIzvOdl5rww5CXJCnhUShwMOsIUlbhJ3H0XJKtCF94Y0jW_5TQ96zOrJg0bVvSuwYagzJEDtSo19lpHX1ufTm2Pqlc_niIOkkrWyqRsgnz44WyIgLHWerizpBs4dcOb_4Rr_R3BGKcRyPJxRNOcPtrX-AFWQMlMgo399XZod7BYmEnHu2LlRaaBOKKozzgPhzqaw2d37lHIr3xA2Wif8T9-2B9BbiFt44OUQPkcVmxSNDs_UVfm95xOLI11pVzf2gn60Z0UMOlecUTpZDR--FOFT1ZrQGwzZhgOEc2ifXbge2fnxFptkZOWfxhYdiPPeK-zLO53VgPCQ5KL0z0uiiqP-Wzux0EB1MJrmSyepJngVBjyXVun5COI7fv_Bl_KIkQ7FeVVTOwJyulZd1BUd4Wftj3ryzLgic0AOK1rPAvXIc8wz_w9BtsTyxZH_3j31nXt_4yZ352pcQbX28yAnq-1ppXdvZALYZwzanS7q2IsGSxiHS8zcK_A0F-YAz77pAMwJyKhWLyAszv3ERXzqGg=w1732-h974-no"/>
 
-##Fort of Pukapukara
+## Fort of Pukapukara
 
 <img src="https://lh3.googleusercontent.com/23x-ezqcUYB3bYX45aXfEg4vtxr9aGClNkbG2s136WQg1vDtd4EqF31mVeM17CukL8fhKRMOIPZ26DAQ68VBVVrd8F1WokYCKsrecoONEVwRTYJVpjhMgmIa1bRIzlgnfTSmhu-M6va8blMYNT7Cy2UBA12YX2oIaAPjhNOUNJuLHc4_iKH184rOM9sSP2az3WbufdFhXFcy3lH7d4U6PiVcJPtxupLmQpKQK_DskVOYPEvCBMw1dEDH7yerUd7mTub8PWfsNRX81QdaTiyRfW3TlKLXmnDqC3NIIV_jFBNX4BbSArzJY9LUymeMBM-cc9nvYW0F6V604NdKpLdbCu46l_FhwczTEYOG_ntEXH1hMAx7lE26aeQSFHTtUR33JRX0isLHrmSyeDJXSF6E1n9_fwndMvMznwuYS_2WvOOMR2HmKEs7ymPh17WJRKGx-srgjgAIlTB_1xasFd-_-S4uGQ7qZp6bIjP2maCUhs45OC8U7PU6_KkE-sjenZtRUeoI6RSGNP3PKF7IqStR4NjdJR6MpDZHdp61usdySfv9njHW95_oJD5rwlw6gFosojaTybdWJpyoIJAKUkQf4aOzZ0QQicadi88V8nrpy7h1xoIkuSDgt9duq3n2-SzpifQXKrX37Qkm3yhw3hMPPs0s_PTRxrPZpx4=w1098-h729-no"/>
 
@@ -144,7 +144,7 @@ Though the engineering may appear crude in comparison to other sites, you could 
 
 <img src="https://lh3.googleusercontent.com/PSlJGFYfVcbvkIK580I-OMHnQ3eK6WoSxoDMe7zhAwZvti_5Glu-Mif1V_tb6MrhqB7YeWCmMTMlYKANCuk17lJ3_a8QNzASHV-xAw8Tqx5cCMGMx4ncWlJll1JqfgcgBaRH8J4105CF_gqxEFQZRoUc2aTEyQhRruU6t6GLu1HMXralwywZZ5zHAt6XSCTxKOyJq5jRrJwAVn8dgtd5xCNOw7aWp4z2XH-JGfs0K4coA4xg1D2pm7-JRWYzRZWy5aFCHw8uUpRzI5ZRKeMapuQW7nawwq5m4Nkb3dTbjmD0rzXTe_QurtkjM4HoGdL3LI6dGkvxPng8OfjaSMLwiriJkOXASYTY4PBtRqp9TtlK92s6kySXl4eroA5C1j1sBUeMF46atFjwdsocQqa3ntX_v_U2OoLXVEfLMYFKEAKDc063kmNPijAdd6guVlNPX8AqzXD2RrIrlyuK9Lr1Taxgc_ang6Qg5P3iZWNhZqBonbeuuEVarcH0v9vRMgtZQ1EQxkKVYuWNA2OLNZ6qACun6mjUgrGMegvGQwGyNI8KGPXXWCexCZ893vou1n6J9ZYYcccJOd7BNrSzyEnE082ztYn39WKpyLKrkgQdvmxMWQLTTFi-TzGgeEqKuSgE3JqnxZa6zHNK9Pt0_gJ8l14xXm5FzU5ZF7s=w548-h974-no"/>
 
-##Fountains of Tambomachay
+## Fountains of Tambomachay
 
 Our final stop would be a very grand religious sight showcasing some impressive Inca Hydraulics. 
 
@@ -185,19 +185,19 @@ After the guide concluded the tour he gave us 10 minutes to roam about before he
 
 <img src="https://lh3.googleusercontent.com/e1AHQTOq14wQ7IpW6Hr7V8yOnuVhtqgGxvFwxe4qtmRV3v7a9VoOOJJLlIJdzchHc4QaK2erXUkIRVxI09HZ7K-4Sz_kBxqGL_cN8x22bg5p0gTUoF_sjvKtjqbP2-r4RkDMd0OmepqoZvi3oz66KDJhovr-MsD65jmcv8b9RCHoy5RnTOlp2cpmRe2s3jF_dsbWsUS5A4TkyTs88SzEehta5M0Q6-5p3XxoMmzzGSDwNbe-bX7UuAM_FzAHdhsi4VGI5PLvYBDLJ8784TW_2htfDWUDGiQer6lCUwJmvO4rpLZ-4kqI15BeYySRURiNqXUiaZPweCGQZPK2tInruEqRhAtkvWC4uFPKsKicR2TjTZOjsv6fqVprDyoOuyCjN0lWiKuENzh65uYCcJuqWQKsXpNjloaqrtpb1KBoYVGL3wGrJRr6poB8Ty_TJ5NRl1KSrvVk4-CQJ52ffF6nWldMqHFktC3cbO7yZ6GqFQwTKMaZkUwXl-_0JUN0VCzrbeC86MyGeYArpfEG0SXWpbbBbq2v0S48OImzVCEOy8oAACpc5pVSMiZBWmimK-YmPanrd2LIlA45lzF1DElw0OwJK7atfPkXQNd6M0EfzkAnRlUaIbEmvQTGlouTUvYe-i6e859gOw6LCjdXMHgQLhvnx-NF_HrW-BE=w1467-h974-no"/>
 
-##Shopping stop for Alpaca Wool
+## Shopping stop for Alpaca Wool
 
 As part of the tour we had a customary stop at a shop selling Alpaca wool. We browsed the goods and heard the saleswoman demonstrate how to identify 100% Alpaca wool from a synthetic and proceeded to burn a 2 samples with a lighter. The Alpaca wool survived the flame whereas the other did not.
 
 The shops products were pricey and given it was an obvious tourist stop, we skipped on the purchases and re-boarded the bus.
 
-##Conclusion
+## Conclusion
 
 The bus dropped us off at the same street we were picked up from as it was starting to get dark. Overall we were quite happy with the tour and at  Sol 20 (excluding the Sol 10 park ticket) or less than S$10, it represented amazingly good value and an English speaking guide which was something we hadn't encountered for most of our tour through South America. It goes to show the kind of deals you can get with a good hostel.
 
 If time permitted we'd liked to have visited another site:
 
-###Moray
+### Moray
  
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/4f/Moray_-_Qechuyoq.JPG/1280px-Moray_-_Qechuyoq.JPG"/>
 [This fascinating structure](http://theonlyperuguide.com/peru-guide/the-sacred-valley/highlights/moray-ruins/) contains several microclimates within it which apparently allow the growing of different crops within the same farm.

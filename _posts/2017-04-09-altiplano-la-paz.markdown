@@ -7,13 +7,13 @@ tags:
 - south-america
 ---
 
-##The Path to Macchu Picchu 
+## The Path to Macchu Picchu 
 <iframe src="https://www.google.com/maps/d/embed?mid=1mqsfC3wnaI71CkCbXAE3_phcR4E" width="640" height="480"></iframe>
 
 Apart from a few short domestic flights most of the Altiplano travel would be on the road. 
 
 
-##Flight to La Paz
+## Flight to La Paz
 
 Although bus routes are available to La Paz from Uyuni , as with all Bolivian roads the infrastructure was rather rundown and prone to disruption by floods and landslides. With this mind and with no time to waste on a slow, bumpy and not particularly scenic 12+ hour bus ride to La Paz we opted for a 1 hour flight from Uyuni to La Paz.
 
@@ -41,11 +41,11 @@ We then exchanged our trip experiences to date and he shared his experience of t
 
 We were then interrupted by the boarding call and agreed to coordinate our plans for La Paz upon landing. He was also using the capital as an overnight stopover before flying on to Cuzco.
 
-##Departure
+## Departure
 
 The plane was a small one which hadn't aged well. It was filled with mostly tourists and a minority of locals. We took off without incident and took in the bright white plains below which slowly gave way to mountains and more rugged terrain. Bolivia is a geologically diverse country with parched deserts, high mountains and thick rainforests. However the 1 hour flight didn’t pass much vegetation and we arrived in La Paz in reasonable time.
 
-##Drive to the city
+## Drive to the city
 
 I'd read a lot of the express kidnappings and other road-bound crimes in South America but in terms of safety lonely planet ranked La Paz as one of the most dangerous of the cities we'd be travelling through. I considered getting an airport taxi but decided to coordinate a pickup with the hotel. My ex-colleague had no issues with his airport taxi so I leave it to the reader to decide accordingly when landing in La Paz ;)
 
@@ -53,11 +53,11 @@ I'd read a lot of the express kidnappings and other road-bound crimes in South A
 
 The hotel van ferried us through the winding roads from the airport to the city centre. La Paz is built over the sloping valley, with the pricey upper-strata of society in the lowest part of the valley along with the old city and poorer dwellings further up the slope. The higher up the slope, the poorer the inhabitants was the impression one could get from the first glance of the city from the airport road. The houses on the side of the road resembled the favelas of Rio and was in sharp contrast to the cities we'd seen till this point.
 
-##Accomodation
+## Accomodation
 
 We were staying the night at the La Casona, a rather stylish colonial-era villa in the centre of the old city. 
 
-<photo of plaza>
+<!-- <photo of plaza> -->
 
 <img src="https://lh3.googleusercontent.com/gIxlmr7rZOIlJrdN1GN5zvITde5yEsVz89ST-KSX2loF4abU8DHbRBrDGCMywlPBcL8R2EFRIADNAHor6ljqbE57WdXnSrGrU4wPbAsrwz5XZ_OnlANt2NC-Ekf6qHPpMrnFD-RAB0B5gYBLj4-sWa8OpR-0MA5ncfuvgk88H0xmkfvqq5sA6SUR5Fyfscplp0yKVcCoye9DlbKpumdBK2mxmHp3y0cpn3Vi1Wdicn2qlnvTRU6uuRaiYcW8uyYywB_rr-bRCGtuJAOunF4u17AtKEErwBdnXok0dk3V2nPOa1c3VbzTQG-1mdRUuhdm6D0gLL5Zgk_KESmoDniSGol_uvUcMK8Y7RDZVDGhK9PvU4WUTSZ5egl8PVt8zWvvk1NomKJvqaPpMEwG-7KksUaD5wVXPGdWJnnWr7TcKQAPD3_cPDyNPUxNtmqazpcT2ptdj0a9WJd0ZOW98hgVGOG-xPWWBm5qErAbzuIzkQ00dgaKYKw7H9hPBNziOv-t9EQ1wDvKWh-axIMx_vR8lRE882M_ux5zdZGstdz6Pcs2NHDylre1z3c_wfin2XFBeuJpLku8vkV0zDyeCIGEbkGRI941E0yCAi10BLcBFKkxVLL82GrvJtD1qyP7zXbkG1CzzzUM1wo6RmhOlnRSAi9lMl95eC_O4hg=w1299-h974-no"/>
 
@@ -71,7 +71,7 @@ The hotel had its own museum hosting artefacts uncovered during its restoration.
 
 <img src="https://lh3.googleusercontent.com/EMMkMDBexpeotNTbiI_x4REkEQUuSuFyceXPFlbiFVGIl3Y7Cj-z6sA-gNhVJg0XPYsn5p_Bue2HKI5g327j5GrbrpcvmdpwU-fEZMh4qs32NoN4mR1gXgubMuHzXaJsZF8bDftgjQiyu_SlRCojvMx5GYfA7qt_C7_CFW6N1IexJWIdz70lsqmdpBBnDFsZNApF-JT5_1q5cdiiQ2c7qhXMa8yLyabSeHnW3blzaxPI2LH_mrFj5G5baDrIVS23szkSHRiNo8B4T8AqoHu11Uq8CMv1aW-sER-9jqv3yKgdl1cBmk0AsznE4eUw8LZM6rko_LyT4pNEFzpKZPEcWW4XwXuitPmQQZ_VgmrsDR15Wde0GKP7afjFoMJLw5gXq78gIgHNGemfTfaJfVxLLsARhu59KTkmyS5ssvVg7gonV-oo7_tsdf3GFT1bd3awOtIMNWcdApixKVIMBv5M4I6P_bxIbAgG17hmj1_3X1UpvUzvoiri4NYKBhQp_2b8ikmJeAdyOH41RVihA2WpBaccDGmioF7PT0u1x7pjrKX1_elxCByZYwmHIBNhd1697t8rUa5Yr4Ea_xn5PazJ2woSXpyeGvBA9bAQRz6pWmwq7O5ps_KwSDYCYJxzFHaX2l-HHJj5I2ADCYO4rKjTr78cnKHZ_tX-C0U=w1541-h867-no"/>
 
-<musuem>
+<!-- <musuem> -->
 
 This villa had been the home of a Spanish nobleman in the 16th century and the hotel had gone to great lengths to retain its old world charm.
 
@@ -79,7 +79,7 @@ This villa had been the home of a Spanish nobleman in the 16th century and the h
 
 <img src="https://lh3.googleusercontent.com/ICGKOZXH8XAQJOPRaKZpAxlCCf9l6LN8tSgtuAkEx5U3vNQAfGxuerUnHdsEKka87c8EiHMNshvrccongYZ7y6Q8tdkiVZH5d13rVum94pN_X87w13qGrD5ZD62Tq6H75y5xUjCuDy60oIf1nkavK4TnVvkI7OMPaS5dbIuDl52WwbNLdpNWQjAHMOhNHYTKzSVezbGcQacloglO93rgc56pETe18l5MsqijpUMayUiq_jhYmkixof6bh-99Mf85x28yBDDO7ISYmJUm-7U3Rt89mvaq44OZdk4zrpBedZvJU_QZY2-I-ycjfEQfemiJ52fV-WrbUDWthoIvTBsb3yF5es5KliIOdU2Xwv4ICEb7wltlXLjqr_64xUcNAwOfp2vFq8A5_yBd9MxlH2UU6s0_L2mRu7HZNv6Lf1dVyvj1Q005j9epRr2Knz3dOAWKesW08iEsr9t2EiXc92_27QGh9ut1MuTw9aHthFjwG-SBkD5Ax0AJmjizt6brglLbUZHLMdHUNgqYTouhObPzKF4zLIEv2p0ufc7AT3uZba8f_EiwPzh-BMiHLccJYdFg5_ObIc1OHDUF-keiJshbNH94rCqz9_1kMxnVh8vShwcvBB0MfeKvsbHn858xQbivhwljf7XI5DMDHdrDIyxFNR5cJJnL0RcgXSM=w1541-h867-no" alt="ancient drain"/>
 
-##City tour
+## City tour
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1XWWQpeYG4Fc5FHUdYFk1n4DRtD8" width="640" height="480"></iframe>
 
@@ -93,13 +93,13 @@ The street was cobbled and at a rather steep incline and the thin air didn't hel
 
 <img src="https://lh3.googleusercontent.com/ULchP6F1nkVhi7ch_2PTtj1pWIBIb1kCooREXydLDD1G7UqZHbjD_kA14CBCWac4VvfTOXpBfeYNxHCrar3Nkhr-3iXF6vMXKX55AMvUQO1DeJDlmogIjPx4WWnsAovewtrenB5jXTX0yysQ2swTqNuomTKIaiJKFNYmKiQxRVLhlAIdW9UcvWmKzWYabtJwm4edd3zJWa-dbSF8A5vhxA2VN4KY9e1cWBZfB-Pm1nhze_zD1D_ZdT4Py31k48m6M7-KkfBD-lNW9aWwjxnfLeJvMTJpc8PeWbS6iOv8EMoGj2gw11qKCH1IbxW6r3jxDN6wSChpdB8cnJtrTQhyG8thJB2GoOSnegn4GMf-L3T9DeAVL-MLphJWrtaLL97bKA3jL2nZSI0yPmubV2Zo6lup4xUiSK6Yk4FplHwnINl1ToESNaSZPiYSNXAuPsZ7Y_idYeTOMKeqvgqTaSzEOKBmJZcZF9AVm7jAmkqsrTOiakqxrJae0vb0x0rwf65wU81CnIn1Sny5UpGSqmADKPGcxg8dZ7sFftHPdMH_KcGijISzBRSGwzZCOf2CQigKh8W71Fv0pfr_ied1J84U4nmbHFoWolb86KDhxswRoZkAQxr1xyP9Vdf4ETPg362GoWMRu4WBcYqCRQUUrldrSUDAJxtS_GaOyDs=w539-h952-no"/>
 
-##Witches' market
+## Witches' market
 We visited the Coca Museum which took us through the Witches Market. A market specializing in mystical animal products (like Llama embryos) popular among the native population and had its roots in the earlier Inca period.
 
 *El Mercado de las Brujas* (witches market) was mostly a curiosity to tourists and we were advised to take photos discretely to avoid irritating the stall owners.
 
 
-##Museo de la Coca
+## Museo de la Coca
 
 <img src="https://lh3.googleusercontent.com/XekK1TCOpq2iz-741ztETCGn2VDMJNvlRG86GCOv7yFDEgrQP56cHllbUcHryXjCCYcPQ8RzR8YdMoMZg4z5s3VITG2ZpzgqyzzRwTmFS77Q2f7657MGJmjHlCC1TKPXDSq8GgK1I2o3wJuya6u4rojuDJCNOFSYCfD849uWxD-IEuR_WhNctZu1oVO0Bgg8g1hmX8GpAc1n-3QLLta_txI4FcnMy2ta5OZjtNO4ANC1Cza_ziW-FolyQI0s86ZiYHYOalFRXsRO2P-D0QHEYSwXA7O-LfL-Vl3FtWtULisnsBC_qIJGcSc435pR_FWp2mdzzLNP0NW57uYEnkv0AOKlyONfh-JpgNvGIhjbF02fFRZPfJ0ry1Sqz-JBxtwbnsFVHeN0SKABw7y1j1bd4YV8gucKFSK2y-8YRPUn1VqRpCVYi5Klvh9Q5C70aXPMinBTRaK0p_UJwlHpb6LQgYa7G8173nMEklQxJ524eRPzSILK9l3Uz-vcWjmBU4O4baHIQg-jMoBDIyd0eGFV6sOBh6CsNe32gOGPlHdQK8Ozrz2V4F-btfNey2LH6S4MXyWElpIWyfUlxhyXSB7H6RSFAoiavfo6G9UWVkwppGZIa1I_JCFn0TOyoisW0AxM-oVe6Uwu_i-hYQccgCpBW8RESqvG6kVvJv8=w539-h952-no"/>
 
@@ -129,7 +129,7 @@ You can see the distinction on the photo below from our hotel at the centre of L
 
 <img src="https://lh3.googleusercontent.com/5XPO7_csp7ZT4_ytzodybLW0sdQ2RYlPIaAPvYHaodTBDIn8XMpdFWjBewtxo6nSyuD2pn9Js9hHn3zuoY48RLGJOygsmX-k_bDeCelPteILiojQbTsZi3935Kzf6DpaxHkoI_UbFhJgaqmAnaG1VRyuCkUFyBlnX7txkujdUJWWdFD6oFg9PBWUFU6HZnyuZpQcTizlELwttZkBdUCGfSiQih5Jq_zO3seW75kHbv4vqZAKpSXwbL-h6DYOxXMG9ODdDtlLnOTFLE6V32OtQR2pbWUa5ZqToWCpGntmzAKE0WHazBVQ6txuG5JXPh-wjDxCilP_T5ILl69kPeZqRrqKrQqidZ5TFXxMayn1UCbOpZXhQy66uoGIVc3GRiaGkhWARFnEK78wTklkwKAmcXRC0oQygkRd3iAxt3gHpYiyTxraSU1ovjE04YnJqhllWK9FzTg4m5o98xgf4I1Jqxcfxn-azerWZrVZfEB0-t5JGkA9OphrO6XbaWEP__wYQ1UkjRzRqDcCFYU9ZMm-May32gKDRJ4nmS7GWNJuilXSIqU3MTGQuJXHirHt0MPWfNJDn4ckFkzjsakGCxPEEiZwznvi291ZCIvMUExElN1w4anG9cmqaVXg6qpkYE7rmNWuyMG3sFsDwV8CCDyQYefZGqdKUjtcbtw=w1732-h974-no"/>*A somewhat blurry photo from the bumpy airport road*
 
-##The Street Zebras
+## The Street Zebras
 
 One of the most peculiar differences I noticed on the streets of La Paz were the dancing Zebras at the Zebra crossings.
 
@@ -137,13 +137,13 @@ One of the most peculiar differences I noticed on the streets of La Paz were the
 
 These mascots would attempt to keep errant drivers & pedestrian to respect the zebra crossing.
 
-They would perform some humorous stunts in order to uphold the traffic laws: <youtube link>
+They would perform some humorous stunts in order to uphold the traffic laws: <!--<youtube link>-->
 
-##Search for the Gold Museum
+## Search for the Gold Museum
 
 We then attempted to locate the [Museo de Metales Preciosos](https://www.tripadvisor.com.sg/Attraction_Review-g294072-d547599-Reviews-Museo_de_Metales_Preciosos-La_Paz_La_Paz_Department.html) which housed various Precious metal artefacts from the Pre-Colonial era.
 
-###Police barriers
+### Police barriers
 There was an ongoing protest near the central square (plaza) and the police presence was heavy in the city which did bolster to our sense of security. We were confronted by a steel fence barricade to the entrance of a road. Just as we were looking about for a bypass a tourist remarked that foreigners could pass through provided we just waved our cameras about. So we passed though the squad of cops (suited out in full riot gear) without any trouble. This zone was reserved for Government offices and being the limited to the Administrative elite, was devoid of the hustle and bustle of the rest of the city. 
 
 <img src="https://lh3.googleusercontent.com/dNUv_luZWTLJNpIZyAnNjNPdB7ucxMl37VMIuoCXHBhfEkqGr-hEAFG17zTf-AEwP50Yd6Y--6uCREbRZ8d--waEv4RF8w8UI8PFPk1-3GZ8j8eT9lo_q_XGeZyJU3EnMWCQMfSK983pmtFBqkBJAOU6SOdmHqiVWdiziP4RwH61tsiXa324w0hMpj6kbqnUOfAjAW4HmR4_0RskTmsgJkwYRmVpl4Madn7sfJ_n8VjILJmZQV1O7J5ysSZrVSUHnrT0gLlv9jQglZYsRueNPu27JoCL9fvYM3Fv2H63KVd8PucZCqqYcDcZExSmCQh0OQb7t2meh7vaatD0ctKNUu4diPTBmKrfvxiDoGCUuibOFyQ8_Xa7mgOx88VD-029baHhi252xEm2AuUgqIASV5sYxQfgzOLcJpLXFKnvqTfmBReyeiHvv3n9egbeXO_PHzlpdShCn6BQqTcjrBLh3SDoQOKG43DWHHU0BytdNOj2oI3KP-cJVIDP6ds_TUUlfeZOueQ67eycMQrPl3qWW2vm5Gm92ysecGxMeFWfXZfmkbD-2OIGhHkP6OjETX3qlR53-YAXeq2KJcd3a6dkWZeSuCnCVSoeCXPsUkt6rukwcRFtLBeqEXhuh73ol4avtYhcSb4swJ4Q0Yy_iY3oXXpLtyL6vFD2sTk=w647-h974-no"/>
@@ -155,7 +155,7 @@ We exited this oasis of calm by passing through another heavily fortified police
 However the street signage, inclined roads and the erratic GPS signal made this more difficult than predicted. As it was late afternoon and it would be dark by the time we'd be done with the museum we decided to skip it and return to the hotel.
 
 
-##Conclusion
+## Conclusion
 
 We retired to the hotel in order to pack for the 24 hour bus journey to Cuzco via Lake Titicaca. The bus would pick us up from the hotel at 6am so we prepared for an early night.
 

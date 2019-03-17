@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-#From the tundra to the desert
+# From the tundra to the desert
 
 We flew into Salta from El Calafete via Bueons Aires (no direct flights as all domestic argentine flights go via the capital). As the closest airport to the [Altiplaino](https://en.wikipedia.org/wiki/Altiplano).
 
@@ -22,24 +22,24 @@ We checked in to [another comfortable hotel](https://www.tripadvisor.com.sg/Hote
 Salta is the 3rd largest city in Argentina and the closest airport we could find close to the Chilean border. I didn’t intend to spend more than a day in Salta as it was primarily a transit point for us. It was only later on that we realised that Salta held many natural wonders in the surrounding sub-tropical desert surrounding it.
 
 
-###Cerro de los Siete Colores
+### Cerro de los Siete Colores
 The 7 coloured hills are an natural wonder worth a visit if you can spare the time to drive out to it.
 <img src="https://lh6.googleusercontent.com/-di9Zn76KG90/UFumOCH2VzI/AAAAAAAABIE/z5UpVHnW2OU/s912/DSC_0275-2.jpg"/>Credit: [atlasofwonder](http://www.atlasofwonders.com/2012/09/seven-color-mountains-argentina.html)
 
-###Anfiteatro Natural
+### Anfiteatro Natural
 An Impressive Ampthiteature with excellent acoustics formed purely by geological erosion.
 <img src="http://www.aldebaran.cz/actions/2003_parachi/andes_3/dscn5535.jpg"/>Credits: [aldebaran](http://www.aldebaran.cz/actions/2003_parachi/andes_3_en.html)
 
 However given we only had 24 hours in the city before our 9 hour bus ride to the Atacama Desert, we stuck to the city sights.
 
-##The road to Cuzco
+## The road to Cuzco
 
 <img src="http://historyofinformation.com/images/inca_road_system.jpg"/>
 *Courtesy of [historyofinformation](http://www.historyofinformation.com/expanded.php?id=2639)*
 
 Salta marked the start of our entry into former Inca Empire territory. The old Inca roads started in this region and finally terminated at Cuzco (which incidentally was the apex of this trip).
 
-##MAAM Mummies
+## MAAM Mummies
 
 One of the first sites on our list was the [Museo de Arqueologia de Alta Montana de Salta](https://www.tripadvisor.com.sg/Attraction_Review-g312822-d577199-Reviews-MAAM_Museo_de_Arqueologia_de_Alta_Montana_de_Salta-Salta_Province_of_Salta_Norther.html) (Museum of High-Altitude Archaeology) and the its collection of Incan mummy artefacts recovered on a site [from the nearby Andean mountain peak](https://en.wikipedia.org/wiki/Children_of_Llullaillaco).
 
@@ -55,7 +55,7 @@ Overall I'd say its probably the best organized and most modern museum in Salta 
 
 <img src="https://lh3.googleusercontent.com/Upv5Ofs52eXFO2eb9hDreSXdgFpEP7-qgitkeqHtHQjvFS8ZDAYEi0Nt9wHWRKMRY6_pmqK3OLxU-WI3DbxBtHgqTtmicjZQ1WieyZIfepuQQhaRT-RTQ1zs3GShE-Sop6Zo4pTN84yEN38Uatl3hPgQFyh7ANC3xnA4zimM3njtt6-VSu3gIQw5kF99ul3lHxedghwt_8sSm1rePbJY8-ZVpkoEQm6CtNjqtEOPVZgE1m_X1qb5T5WmELe-MjAtv87xYtDlUlPNe56FdDo2IjGgij25TNl54CZgleP5hx1OwP0AjH8cBY09encBpZ1JFuZCc3zDKFLa4IBN41RjlluXbCBfBPx21v36GJGTAoCai_kgOb1hD1pjHDm1qe_BWb6jdqQdwdvoGQ6NYypSUx5ORdCeyQfObOSisi1s0_8TUNgop5gEbnTyfm0eI_-GYQ3U0zyBm6RCmIQm4Bzg51UPtASBYq_8BMZ_VW-SEVJMeB0EeOr4fwxkvRSowSUGAOgm4DXqrm5OP8UWmDVMZLkjJUODKkiCMzDZKaYuYjpB4TB_NP03KWCsLLx5w0mX9DR9skBguE5aAnnUoYxMDtn7mWxuLy3M_uapYtoaTySq1jtQKV_9pOr5fHrTnFLU9l6NW3lp9mBZ20IfB6th8dNymqCL2LlNK8A=w537-h954-no">
 
-##Colonial Architecture
+## Colonial Architecture
 
 <img src="https://lh3.googleusercontent.com/HPO6-yHOsb09XOHQwgEmgW2NTGJwlAGqe6VdumC9ild44TZ_gxcjvZEkqYakBkHO06s2DSuYQFQ9CB-JbzbBkCZNWPRECGR8peq2N5hx0jVelsyivBinqUzF7olUniAz_G6ea3ua5c97O0KdwXwQXj5WU-xofJ_KTw5GPkbmfePdZmtO9i-7fOQ-YGpJvXvfH2jzBDGndn0-gqevy5C6JHpkJsGR7GyEOig9pOnW7ZUSOINf4_V6KJqFj55j_cYuyORi6abTH0C3aWEinpY-1nH099PlIlln0P_Gu3syG5Wd61pWuNrxOXgfja8-N5CwUI6uHXnpO_lSP9V8AlVD0A8KnP2u1lKERmIUhdP85s0gJkFuo9f3KvRov8ehS0RAE_hQdcYXmP_6udyggCTAyKGmz2ZKxwhrbTxeQq9kWvA5r_yj8XvmS4jBlX6AGKneFuWxxRQZyTY9elE2lP1ImxsC1D0K-ZWzj_uc5RFTvY10om-kPs8sLXaINdei4OExoO-_IfSo-jZfclo9uqDCDO9BKUgciXm7Hhb1gcaMBMZYpwd7y-HlKShGkvRxlk5mMhDvFbQNjOxHthc5lBgOZSaVs0c9PQka-ZCzs8wtFDJBebt4tgbKWrHBSV7bwfzNUT_293MEAUjoqxVM6Q0s9aWqYyWZMP2QJuY=w1272-h954-no"/>
 
@@ -67,7 +67,7 @@ Salta is well known for having the best preserved Colonial-era architecture in A
 
 <img src="https://lh3.googleusercontent.com/rxtGd4zKumgOByF6LbRDvrgs92F794qMsDzrXWPpNML_HJXNDyqinoUManSmt6k45tdzgwNkMNVHVSvpMKxYyow8vDi-g2wCoatUiYaIcTUCTeKffuGE_mBNQHU2LZHqPBs7wIcVO5K3ksT7qZHzdFBuWWMM-iHTqLBQV6vWcqTFdrKkLwH9FH4ujVOJh9nMXYXwhly-WY2Y6SOHD5PNPEFPQW7uvZpagyUiRBNRF-eakGs2Nw78Fz6u0BS0lmRp9RY5r8WVt3KRZhR6zjWYn2rVJPVRjlOTpLMf7KukVRkMC5cHltXhFyG0uzpDq_cDj2gi1njxtNu-5sklioX9t1iwhbvQnIKuKIOJZcDkZPEp7gutBvaonWy6ZU31V0JJgsYoTS1Mm62V5YR0RJcOZjDwjyhlJAZunCa7O8LKKlqh-h5IKjnMKrRhtiG8DYnVlSGSuRYRe7RMGdPhtmHU_gQ1efKmNfZK7GqNckYWCRclVhfogGq5sjBIcCJCW641QSZ6TMDsICkPWIwxPSmBmLBizpp6fa0rxReiNnvqsgN5WA2E6A3eNmiyxerGwQeRqrDGTHahz7bmY3W_sAQ6wKpKQqp1BU7opBAWDCCapEcHsfIU4KGWEiYiC2Kgv6CXhIICtlZTxnxDpcBiXYyEuV0iVbZq-LKLtok=s954-no"/>
 
-###Salta Cabildo
+### Salta Cabildo
 
 <img src="https://lh3.googleusercontent.com/WFMX2WVea4kD8AJj6ocOBpceu3WWKoVAu5dRiFXkxUCm8U_LrJh9Z4Thr3ZEvZ16CwdaignPnZn5MPizkFvCC720t6kDC_uBkx2xDqv-EVx3wEG53w75KS2TT2uWXbW1yP23jqYwzSsdgnEDmON-pXQ0YcvPAOMPrz_YBJhy8x-wWqEMyYZluzdpnKSp8_KVOGz7_DrEomE1vbLdHcA1Y2zQWU4xLzLUkpFyOH9G_xELnEpiBdGqxzz6exu09TayL2bny3LBPN3ivrQWIP_ow_iXQ7R6-b6EopFxfg72jHCcsxZ9kH31r7HgwFACUIkrleEIrtyJwx1CXN10Fam7pyai71rYRWDbKc9UTGlRVirhRksdnl7qQl5ID-9_wz1FTx9m8hsvfEQ9cXnXjfaMlglRUYAsi9AjcSJuyJeYnA0DJ238PjteoX3TuedrBPTi-aMD88Qij3FTrvHG8ROi1uPvx3JNv7_b_FSUJuZ4vzPc5-eQWWP0WSJBF_fDBqGo7gDENFmRC3MgZ715YbO9gWb6XvJRpRRPi9XM-A3wJo1BkM0FUIpX1eM2y56h8TCUGOHnEusj3kRMPKC5mmluMDdXtgzlE9AxzbuJyxyfayWd0cjnEA79aCfFq6m1renBcBU7L4m-6Azx4EVj85TrVdS8QbZ54VQV8kY=w1272-h954-no"/>
 
@@ -81,12 +81,12 @@ The 2nd museum on our list was not as fancy as the high-tech MAAM. It was an [ol
 
 The dusty museum could probably be better reorganized but was a good example of Colonial Architecture.
 
-###Ornate Cathedrals
+### Ornate Cathedrals
 <img src="https://lh3.googleusercontent.com/B9fn-iyOpukbauMpfudPVnHdZo43V9RJan3xDydFvzDb0WddlF20mR1xnQZ5L1RW_lhlFq4COUMeAJvGWNpBnSLOwJCiqmZ6h-l_tD2w2AxFtv1ic3iTiX63KTYvy12E6D3bF68nEnJ4IPaabChdT2UuawXW2uMLP5ox4Fj6_2-Kt1QeMBJoDTFgiK2uTkiqBObAgIoxhqiwHaizOrt7TLZ-7z2vtI48Aa6W9CsO-F7RUOw-QLlyjjKsTQYpVf03xq7oR5yiAWfE_u6XTC5DsRM3GXddDOWFaZXIxa8ZVzoe2KA7tMRGALV9S3jrYRMtj_bp3R6VkvlJMiNqK5dGgQ0A4jkV_Uv5dDFIXt51-U2BesRytGxLOoLL0bG1WFH_hGOKPCDjRVNGQ8pAG_wo8eYaSOPLnfBTZjXvLLA36CbYnU8wOhsPOQ3yGsggkoaN9n0s9UIJHwTJ_D5dcxqzh2VPQtRtuCG2a1AWG-g81-V9wafpA0RRMB-vp8stBvdF0qUb2szRIhGEiuTR4pRssJnC4E7t8_LAPJdUbXoj02vxqf_uZbiiWLAtmLbhMZcDxBFgFFtszLZmWid_TzQbWEz_jgRWaMfodBeunsFQV2YHrKDVc5P8tcVu-0jZok8QoINlVXHF7dS2YeXbV3-MKC4QNXEBKn0erYk=w590-h787-no"/>
 
 <img src="https://lh3.googleusercontent.com/QLlFo6RUpvvKElpMsneV2u9HL8uIwS9RxCGVOqtLBkqFSrU3g0MJWLOGMWR9QqreId7lz79Lj_IzJ4UbkwGGJ5fBf8RTyGke7Pt01tOOC13BTGNJEbgZ7-xvxVNkp3VR2nlZQsV-PNXuvCVR_VAPmt7J2dA1no3RFBthEDs6_xYSgmcDTPGu4RPu0IjQEnKEuY0l6fvuwuxCp31cWFIS-0gb7W1HC7htwebSccbWmwfFZcauICA1CsSac2x62GFQ3_r6uRO0v7EgWXFySIat5HnZ7ZMaCfzyd8F4wPycNLwRZrzM1fSAjL90R5Tv7spUpdSpFnWbi7wUBj2at8fKo_MfN_v3PCGTKAiYiVWPHahIDXnZ0V-60Xv7CxOlDO4lXLM73pt1PSY917SqSs2kY_phcMXLEREAEM6qKXplGfLY83-W8UlBi9vx-hLlD-R6C6vfbg8TbJLlhN8gK21skCKARuqxGkJEHOmggG0zGFw_-evQFbZVRTbPOn8tckIrxD5Q2AIhmLcfY2YmPwYpCh82QLQ56LDVU67R6RdEYL1Rm8BWCJp7ZUL5t6ulkvJMUVfbIKm0-RQqrEA4OBq3WAOrH8hOldJ_QqzJy5ZvsCYhC9Q_BNG2S0vnXYmDIg_xJvTxim-WM2N8S1FP6kNrrz84lPVtw43AE98=w1272-h954-no"/>
 
-####An audio tour
+#### An audio tour
 
 We took a guided audio-tour of the largest of the Cathedrals *Museo Sacro del Convento San Francisco*. It started in the central garden and then proceeded to the various rooms and inner sanctums.
 
@@ -102,7 +102,7 @@ Although a very large complex of church buildings all in a fine state of mainten
 
 <img src="https://lh3.googleusercontent.com/katP9R1ZjL8E2pdEHHkHArL9UaHZqnDvjnZg2p_ZcIxbYRqc_ecJfjbtKJKMldRNBuSt4ITr9vTfyy7OS6kdCTFxQFpdfAESjFPQV0sAc1Fa0wMetBdnUJ7ZenEWCJkS6EiRW2QaY-264Mu0VMRD6uDq41hFiHgN73hEuNyQKvsFCcvfhMI3Nij4GyU32lYvXuI7Gh8N5likZu4i3r6JXjhI-1BREM4Yt9qd2hTozZvZPH6BAKkkhfgsIRv4eQ3GTNyn7nNBZhREu0Sb6-20EoH7m8jB9JieM0ymQLiP2GnJ83eE9zbkyvY-2hKd19X3eyal5J5R69gEN7YrkW-E1emd-V5egX7WhnECgLjdtwXhIZaG8nO4agRf1KMejen3A9LhbdyS0YuYEOxCX8cdQETYonRMJnEeZ4gDc2MST8DHtsMtHum1FM7BSk8h6cLBAs04SsS34O9XwVvr7nCMQCYQYGBrfI1d7KfLdgbeAd1QGof0WosQfCZCJzGg6b0e8iu2XFjRdwgylR1rzYdchzKM0-TBENVFr3pOk_7QkaC03hsbSG3YMNmykFStB4tvDlqdoA9CZISjUVflZCvFRgXvZeikb_CgRJJ0kUvjFmg772vup4CbJzqRCaYzpSSwWwkQdwhpWJXLln_-V8sdg8JqXL6AWizsjJE=w537-h954-no"/>
 
-##The peak
+## The peak
 The highest point in Salta is a [Cerro San Bernardo](https://www.tripadvisor.com.sg/Attraction_Review-g312822-d2554157-Reviews-Cerro_San_Bernardo-Salta_Province_of_Salta_Northern_Argentina.html). You could hike up the hill but owing to time limitations we decided to take the [Teleférico](https://es.wikipedia.org/wiki/Telef%C3%A9rico_de_Salta) up to get a better view of the city an the surrounding desert.
 
 <img src="https://lh3.googleusercontent.com/EmrgDr5RekGs40wXLujaHz0arwTIc4ZEK--jrThHYYCTOa-acWyJUyastX_kEAo_zNxaklff6O0wAArc9RdbUxdtCqQV5hBSdM_GhLU-emMqhzXVZ6h-R7GkD88lEgYoyIPMiqn9uIE862eOYCAP8nnKHIKz6x_1hYR_ipKbz_cINYoBcZgw1OkMC_ZCGeUGLnKL49FyWrXg00cQHHy-Y5LM__zsxR8a9IH9hQjmw5hFKfnbOJ4oYI1igRuF1TLXVndtIKC6-2cjxHrbwILJP8cZMgyTbKUdQDyDE1OsBcqZcNJgQlORDNErIMgMQ0GpWtUitc21iw7nn3uZOFl9tMXLAJizQAa7Z205QEzZ-AR9HDJiJJAtO69BExvCySZ5OJvBcvVElgruk71faP44TJ1G2pgwlxx1X_kVKL7qg2QnXzjgLx9ymHHpEqoPwZojSDr4oYF2b804WmCS3VlmW_aZk39jwZWfaItAcjDqdATkxLmCvjTVEeEkcEageL-ec2fXMGfC1EzM5cqXZlzs5mk3T3nBKIAehg8M3TO6bnTnzK1F3VpBIzaErQo2UDuWqbpB_xx5WF1tmsAg-xpIepSSWq3epjuBbqwuWdjzrnCHLqADodMbr5WJHxL1Rc4C7UIS3VGNeRR1zzMLXMDVawb8kWz09xVlpL0=w477-h316-no"/>
@@ -117,13 +117,13 @@ The view itself was not overwhelming and given the urban sprawl of Salta, I wasn
 
 <img src="https://lh3.googleusercontent.com/LEqg9mLL3zhjD5BaGwtkKaJu7K3s5erg7MfySOphD0Mk1uOV66UGuSHwujRb3yG8vWrl9l_GV-xoMxLSXQp9OfVM0Kjx641yhfsDY2R2SHMRp3eBQ6Z0j1kUKy4ihX7CmoIXusO2Yd92fsQkkLo8zUqMj0L3oIqC-D0PiKSo0CnOK0iHD9x-4cTSQJrNNXkwRVgNP_xCwoW53mhSBccYTO8DIWw1Hjmk0Idr4oUiFDBaHVd13TcMNQq5xwZsZ7TNFp7z1FlxHOrbEd_FWUzy2NS5BhHp4Unf9re1W30zJvJiKDXZ4MkvLxo2OeqwffCLR8quaxJ-amgjZB5DTiqOm8OlSVpp6MiDdMIHom9r-FKT0WqDU0lVszi20LW3Zp50ojd7QKqKwhUvPzKf4akz42x0KcJm5Vs-kpW4sZpW-yCqUgFHH0bP-DM6Fm3Bb01NoJfhFN8s6EDqgMrQhpXi_en5_OzHVf4da0FcDRklrD0RHDOflR3yCQU6h3av7ZuP4NqqKsdEcz8WeGnwjfSu2IvvuEDfMvG89DmL3J8HRw6qJQ-F0CBdblDJ7hU4yc343oho5OSHIbEe19XvQ8c-7KfLuNqVBuiqpfXNKQsArIqB5haxeKzZ2oHw2ALh-ET79W0TOThSFOxAGiCileEBTF2R6OorVHxdMS4=w1437-h954-no"/>
 
-##Pesos for Bolivanos
+## Pesos for Bolivanos
 
 We had trouble finding any cambios dealing with Bolivian or Peruvian currency. Chilean pesos were easily changed though we picked the more *official*-looking exchanges instead of the dodgy backstreet options (mostly on security grounds). Argentina shares a border with Bolivia but apparently it wasn't a popular currency here.
 
 <img src="https://lh3.googleusercontent.com/t2XN6ahQ5f8upSpvz87JplyQ_cqz2JrMaMybl1hyZDcLcaMB2TAGh_D_1FvRnQsAvheKLjTZ68UsECLuY6muJpTu9O-smc1XFKGBXlORtj55epkv_EE8ynrxBAxm_zvlkRUYCYc6iQqG4uknCPyaAtE9HQmAvY4P11Etgr4J_GfG2B6cBvHm0Jw0lAGeTZong1OtalSfgvOdQX3cETC_2I9JXxpoDNBuPRI2x5xLzB1teD8nvjx0nlLvNsIQztRYGuEJBbN7-ClrzbF0bW2GC9SkkKNc5K3aOTa_1aSEKaXOYQtdYdMjJa5d-Di8JXmg86Zb2HX5Xkmsx7AnXrsauOilSbwat_Sy0Egt1DiOHYKUui-_UBLenKgZKNxaZzx-IGI_7g9TtZILPQpJvdV-jS2Z4lNniQZSfYZJToNwheuPGOt2Jgra60plDFJDbNY2v8MgS97b2OjAUY0oOihHABEq5rnaZlqBwa8Wt80xbzpo4y8agLMHnt2Dzv1XNWtQpEORbtqd7J_xIRPII8le05QynU5yIzQvwkjqKA2bMN_80vD0zmxL0A_on3s6DsdFXgA_ffMYY79Pr8z18DrBFFNXQjjq1-gc7GulHro4TbtqsJyIvh5fYSohRVIjSzGojP0zIXiyyqsn0AsRvDwi-CAf4xOuCr3N4Zw=w618-h348-no"/>
 
-#Salta by Night
+# Salta by Night
 
 <img src="https://lh3.googleusercontent.com/bVYQvUtna2TqlK-PW9p6yVGse7GzYSMyBB3J8VGEZmAQXztdB_FBXcGZibF9TtP0Mv4-ddr5H2L1EkiAOeb6U9Ngn3T3DtmyBtnS-8LgvgGZd85QzJEw-qJ2006YHTBK8-Ahc8kavP8WjT9Gl7wlExwvaNteHXLPQroaH_k-UMSAbSDnRdskFZOHb59f_86-8Cr3VxybANLY6vb75NoTA0sdlH5ARXw8ManOTzdyhY1sfihIHfrW8FuwhEGuong9D23iD9Uzcz23xU97PsRzhrHGg5bdmQjTVoKc6BA0pmQnPujfvALWBU-rLbWQ5phLrFQR2Ev0JUXVUMWvULwwlryW26QEy9enAXDNZxqnzV7GLCrV1C-Eg4-rsE36eVdYV7o1IvABQG3Lp_iyk5IZZuxCVbpw3U52ojs9wfxyzpAUB5xc6sV1vvTZmKCbjOs4yDMJTEmtRQfwvg_1gftuzSFhxyYczH5ND6L5AGRu-eDsP8HJB_PHiMbk9JgrResra7V4CBfhCPl7XwJERUQiY3Yi64kEv_zhfnEt-YlzinEcGupHXcbRavPEdlvQ4dPc_jxDvztmA3kJB1FxG8ZbBTKHNfMrQo3PD4RdH4kfIakJ8MQqfTRbBMlOKdfwPJ8jdNov1VjSJx-DlbjHeeHv0XtnRgcGffRqODA=w457-h343-no"/>
 
@@ -131,7 +131,7 @@ Salta's colonial sights come alive by night as the city lights up their building
 
 <img src="https://lh3.googleusercontent.com/16NLQSdyILUAn42qvh9-hX9NWlUmRvjJ6pGwxo2THw4nnbR3TKbSoVdr6T5JjYsawEj5X2U8jfg0cCaHAJzrMdgwsM65l2mNZtKPlwoGcBKoXTur3-t0h7AflNFCLXcIUFWFp2NJdA4eVzFpY18Xn_5spJ4XNOckWzpyuVrKgNdzsHRFBnA46pj0aCvuRCXszjEUK6iyNZk2zYhQx7PEXqEYTh4VkID3H0rwF-afV5CUuuuBYcdXPXwr5BreQxYONcxb7jRVvOwCuZwybtQvyd4sA1ggH8sDfs1tD7Hinzsp7L_qzD1SuVWu3BEXVplzeXA2Oo4F9ZQMzGaxyGBW2PxG7Uqou1AE33Z7ne6kCx80g_U_r0adZ0f7tId0-WO3YokqgRoMkIX4pTiKX8nCfEnfj-m6T2DaZFD4GNlA8llZpxwzYPoLj0rymQJYWdC5TlChzjs3Jor6Ipy3D17FmQSJbvUHG28z9ijaLrsxKD3qVRVGItDyzED95IXngEfaRgYt5FA2z_8UrsMPm0FkZ1tzXt-zXdFICDFImh5r3fxI_TXA4SUG3D9S8dUk2uUP_IfhhdXYg4vUmEDf2K_ytkRpGvnY7IHNi2TJBq6AofCfGJ_50jAQETkLWHw4BFdrTqPH56KpK-nB9C_Bt5BEw62fxPc40ewY3VQ=w1272-h954-no"/>
 
-##The Bus ride
+## The Bus ride
 After a busy day walking about the city sights we returned to the hotel to re-pack and head out to the bus terminal at 1am. According to google maps, the city had 2 bus terminals (and the bus company website was a bit vague on the pickup point) so we were a bit nervous on the short taxi-ride up until we got to the terminal (though the hotel staff assured us that all Atacama-bound buses leave from just one terminal).
 
 The bus terminal was a dingy one with trash littered about the hall and some dodgy characters strolling about the doors. after some haste we located the departure slots of Andesmar.
@@ -142,7 +142,7 @@ The order of boarding was a fairly chaotic process in his terminal and our lack 
 
 Once aboard we got comfy in our *semi-cama* seats. To date I can't quite distinguish between *cama* and *semi-cama* seats but our seats were very comfy padded-leather 120-degree reclining seats with blankets and a pack of snacks. Given our bus ride was 10 hours long we thought it wise to splurge on some comfort.
 
-##Breathless
+## Breathless
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1zLMlhzZ6fqdE3w7RdHn5VBpmlQc" width="640" height="480"></iframe>
 
@@ -150,7 +150,7 @@ We had started taking our [Diamox](http://www.webmd.com/drugs/2/drug-6753/diamox
 
 My first experience of the thin air was when i woke up gasping for air. my breathing was laboured for a while. My co-traveller had to deflate a neck cushion to avoid it exploding due to the drop in cabin pressure.
 
-##The border
+## The border
 
 <img src="https://lh3.googleusercontent.com/0eOj-ge7756T0gECdD8mW4mo7YClHRJdCyOIOYy_MXkI2eVKODEk9dBNr5Yx6IeYz1CABcmVf0qsI7I7dmAfkBUIyAQflPWT2VUFnBme-lndCo2QCu99Z4_fqhGFxDMbc3OHZbZUITQG1xYQcXxpw3Py2cRCqrpz-1l6ZzAMA69-Lq9PTkY9lbhcmmNLZJEjIs7EOOlQ5G0bmq8H2bNm3PS4NkkDde6WuBDTmjfjMiRMm54pXMSpKLgYL32wJQzTmx0Gvi51ykqivCeL4rgcxe2RxUPVfvQ6kS39TmNSZighX4vLdzoS2k7blayEgUZtiyiCNusXqTPBCk8zhnZtJCMwawGPNaM_3tQ0qEfmZBNDn8Dite693jFwcvvAS_oCg0Fsoszg5AL0B4SHx9ODbwcpYvyc0_AtVh2ltcVwBB72bmHIBfNC-r4QcJVtLyKlukcXEjAdiH-wRaU4CcM9Kt4_ZsHm-xz3c9iOF5ZNSgZyH5J3dMh8NVELNMxEN4oIDjQxRfJd_8gKHpUGpmLu41JdKmmBTSQOEP3YYikhZFLKUyhyWTx9Kh115H5V0NACI32aJu5DohDQ2sbiBMvADomeUyKIJoacHYgn-kYVVyepNhEjYaU42-3oke3yC6K2Zkxa5bs-ZhleS_CiNZXS7YXC-tzaOoFh3QQ=w1550-h872-no"/>
 

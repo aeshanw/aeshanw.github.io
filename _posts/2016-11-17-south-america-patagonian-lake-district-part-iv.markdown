@@ -7,14 +7,14 @@ tags:
 - south-america
 ---
 
-#Cerro campaniro
+# Cerro campaniro
 I had one more day to spend in bariloche before proceeding onto el calafete. I had considered the longer haul options during my planning phase of the trip. But the town of Neuquén was a few hours away by bus and I wasn't feeling the urge to travel so far out to checkout some dinosaur bones.
 
-<map of the region>
+<!-- <map of the region> -->
 
 A French traveller I'd met in *llao llao* the previous day had suggested a hike up *cerro campaniro* which was on the same *llao llao* bus route I'd taken before. It apparently had a better panoramic view than *cerro llao llao* and  could be covered in half a day.
 
-##Getting there
+## Getting there
 
 I took bus 10 from the civic centre of bariloche and used by `subte` card as before. Buses in this region require that you state your destination and tap the card to pay, unlike the `ezLink` tap-on/tap-off card used on Singapore's public transport. The bus was pretty crowded on this day but I was able to get a window seat. I attempted to cross-reference the landmarks outside with my offline *Nokia HERE* map on my phone. Due to my lack of Spanish & unstable GPS I almost got off too early and finally got off a bit beyond the target bus stop.
 
@@ -28,7 +28,7 @@ Apart from some wooden markers and some trodden down footpaths there was little 
 
 <img src="https://lh3.googleusercontent.com/4kewD3GwZ914cMm4QcY0f2pBoXrw-4sGFO3xN0RKF1f6wRpSDFRtt5ob9yoqVbpeAsyBkRuoGLViM1QuQS3_YjP_74BFiFPQkAfKJjORuDas9guXCuRD-3D4HyVcEd2wG8WZ-4vdlqbXWrg2aGN7xkIICe9v1nLyWTTtQo-H3tZ5sNrcTc4ChjIRSfsC-NNksj8DnDywqOefqtSuxa4e9XyCfK5vWrb4nul7IoOvW4mqxQF4xKHcN1xbgwPsPVGfmLvwrjdnEpyH7mFhHiVhZXqpWGwJM3t7vyEvADaGCx94ZM9w9sAGDe9g1hmLhHwZY9NSAVyUzoA7nP0u0dB30Xop0i314EY9W3fruCpG1lMgiDOv1MQPneXTmvP9edbmciPjhyPZkjLpLnQXS04U2tEsI4f7DdIgynfC4j5AygLFMWqfZbjf7hwS7eachLDS15YvABtBVX9qMlnWUr0hQeR2TGNrOBwI679nG1ABBte5Ovji984tYbOlD3QfxnRV8MVoBkpZDiBMDYwIcyJZeGRYRYLh0PFAPqUihzN6lHMwYkW8Y_ydVN-qXsmO5joo-I_v2jOdMqE5bkxmu_ijMBDMBykOgnBxfP_pQNAxtA=w1080-h608-no" alt="ski-lift">
 
-##The vista
+## The vista
 
 The summit had a ski-lift station with a small café, toilet & lookout adjacent to it.
 
@@ -60,7 +60,7 @@ After reaching the base of the hill I walked over to the bus stop and waited for
 
 We chatted a bit more on the bus before parting ways at Bariloche. I had something eat In town before returning to my room to pack.
 
-##Settling accounts
+## Settling accounts
  I had settled my room bill with the proprietor's son (who spoke better english than the old lady who checked me in). But those checking into cheaper hostels/small hotels of bariloche should note a few things:
 
 	• They're mostly cash-only  (USD is usually accepted aswell)
@@ -72,7 +72,7 @@ Google translate was a valuable aid in my trip though it wasn't  problem-free. A
 
 Which puzzled Martin, the owner's son. He then realized the error and laughed that `proyecto de ley` meant a `bill of parliament` not a `receipt`.
 
-##Conclusion
+## Conclusion
 
 The only words I can use to describe the difference between the *cerro llao llao* & *cerro campaniro* would be in terms of:
 

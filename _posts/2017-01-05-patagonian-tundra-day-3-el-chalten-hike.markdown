@@ -7,14 +7,14 @@ tags:
 - south-america
 ---
 
-##Choices
+## Choices
 
 On the last full day in El Calafete we were deciding between 2 possible hiking trips.
 
 1. [Torres del Paine, Chile](http://www.torresdelpaine.com/ingles/)
 2. [El Chalten, Argentina](https://www.lonelyplanet.com/argentina/patagonia/el-chalten)
 
-<Map of Torres del Paine & El Chalten>
+<!-- <Map of Torres del Paine & El Chalten> -->
 
 After checking out some tour operators We decided on El Chalten as:
 
@@ -27,13 +27,13 @@ We only had a day to spare and my friend wasn't too keen on the more rigorous hi
 
 
 The scenery of both areas seem reasonably comparable on 1st glance:
-###Torres Del Paine, Chile
+### Torres Del Paine, Chile
 <img src="http://a7004596b03128c36bd2-313eee040a6739ed30827c353f729c6b.r55.cf1.rackcdn.com/143/3/large.jpg"/>
 
-##Fritz Roy El Chalten, Argentina
+## Fritz Roy El Chalten, Argentina
 <img src="https://i.ytimg.com/vi/3jqddqy_xYc/maxresdefault.jpg"/>
 
-##Getting there
+## Getting there
 
 We bought a return-bus ticket to El Chalten for the following morning at 6am. We'd reach the town by about 11am. As we were due to fly out to Salta the next day I booked the the return bus for the same day.
 
@@ -55,7 +55,7 @@ The terrain we passed was mostly flat with vegetation no higher than a bush (mos
 
 <img src="https://lh3.googleusercontent.com/OTV5MuQRYp5JVhXmOMH9xK6aUS8ElthbM8oozqNBN9eV5axAb78ZLjpIco9CQbnJlysbxCKXWkGPYFIKY26WGUpMKmAS27jba817A5P_LjaG5ptCasYeX5NtYR1FNQyjfksMAeT7e8X3zMtCDiIBd01lDmjagImmsjLN1KWWxVOT-yql8e0mNviOQPcJ4EApQgjm8iCFWmNosglvwAFRO8RVcZ3SksAMqXb5SGH9mRPA4iP49g5F_EMt9BAg8xD6cXxftnXR9cvqdQ59dLFyPbse3Xhw-g-Y294z0Exh911wJ7bTW3cjS4gnysC5TnvdQt4NV2ijqDkwjV8NujNFdZZs-0Cr7i3izmMEPm3Tis2MA0Cr54gV2gzZMk_vDKWRNXi4rmBqM11tGG7BzdvOP_lHNDdpiuWzTIXujZbQLoDD8NVXZ-wOqSsWo6RafNEcV7J5dU1jrVXj5i9_H8YJpzJqCyV_DcuUQgOr8xT4nQK1_FsIzbvk7JK-1gARCGa8sczreFGTwIQRuDTlpntpcPX8LW6gzf153NJ1G9Z8YMQ4loFySsHZCAEoN9bCn_LV4rkjR0Y_9rACWSTaXHAwMh0EPBSgeXOws1s9zeGZHpmdpK3juGZ6RZZ5hY_Q9UBQ88UJQCliPOTd5cQVYZK64BR5w4DanT2kGhk=w1560-h878-no"/>
 
-##El Chalten town
+## El Chalten town
 
 The town was even smaller than El Calafete without much activity, save for some hikers heading out on their trails.
 
@@ -69,7 +69,7 @@ The trail started at other end of town so we walked along the road for about 20 
 
 <img src="https://lh3.googleusercontent.com/UJi5qDNDmHtdN2gNZl-dfRiU3pqqYQdZPMeIjaQmHXtWvMWRNLj80zQUkm97cWa96HnTF5hIjGgu1vWvWYzZPvSDxN-XLbcuxJPinmPLzItV-bk2a0a1xbMtAls6IwjyCiWdXV7krTA_yEb3aI3FAYNprTIFjjed5fBcorWBbmYqbuLW21S9HG2dZCWa3CtLdbkczXlng7nvW58aBy0mANH7BAf_eSGOFgmiy_LP2ob5lvUdmzvUcbPp4djjrv9mxiM1umDkRUR04Zix7VcgPeYsjF-AS1NNauZJ-4HA9GOGnkx3nHY3G2nxQodfYEQq-FHAweh2qvp7P0ifSEgBS-plFRc8mhRvakCtKzqytJ9o4mvz1SIhuo25HIu0F1arVtfLdxE5zKYHSvnpIrHtwGb4ck_Y4V23ExcItjVm_TFxPCku4C_S2nuyI4k0j-9BP6MYlqSUM1KJlFnn3uQ76T_C6mP3t9gRSB550hvjxB_ecClq1MgUoH58QkdC3Bwg76D93hkUP-tmeMpkTVG1h9rx2XZSTXFMHindo9QhSLfobOoomowhIZkPkykxz9h4pJybfIe3TzRoxIhCpH-1EHYIQTGhqx0xuIQiB9C967kpEXYTAYiLtpPfT5VeMxgAMvpNmFi3GIxOYkRvN0Lp4PLTRyBCHSyLr5k=w1560-h878-no"/>
 
-##The hike
+## The hike
 <img src="https://lh3.googleusercontent.com/KumlCv5ap7Mp9qWPkzv9LWfo4gZGEtjWyu5w0JQFkIOgZFpPQtpR0puzq-TY7oJS1CidnDoQieMOi0Rmy2w5KoebxwNU69jNmdYPFMBGD8hObuL1sHQiw61T2VEyBZfOrM7gjI8Lvn45bOwU8bMCuWlBH-QbCFBcMXAz7i2aMGlAWYGFuOCdhKPZaWbcTCav-fVu9IVpZdcAgRcLBBadrM8E4WGGwfqaww16z_eKP0h-l9GGYj4GJsEbkRr_e10PGrASGQ6WwaaDkVMheeq7pC0_Uzzbi7rz5vf4fZlW13mppotRkD0wRPcx-SPw0PG5IPErb741GIVDYooMWZseymmgvcxGC7kLCC9Z57QrtIZX1AuuYcyX8Ay89JoGRhJ9upVVQtfm-7AtjvFEOlKBLuL5k08WzDyFOfZW43Xgzs0jdhvc9uzuO60E32I8BuZinAX80aIqQ1-xbytr74hdOshLAm5fE1wSMz-EWXPthMrwxxPlPlqOkEQ0ZqIpPGIVLV5FuuMAyUO-f1-3xOIYWfxbzLTVg14vWo8lArWhutFbbmE0FNvPTnz5shA03yH3CiSK9nAfYpyQ9G6PBlOxMGvfTbMjpTeE2OdTIi_WVbiKIDtzj2mRTvV0jujWHSFP8IDZas8rISlWAW6q-hIZ_SmHDjiOzUeT4YU=w1560-h878-no"/>
 
 <img src="https://lh3.googleusercontent.com/iUStdVoTpsuKFRSxSMRtwuED29VfxZT67rxDqAeyJQ13qC8l8VGc1shgzc2nCbWPVNru31axDSf6Bw_O_mXTPu3Rb5B0oAAIYq1E0WuSCZ_eBQlXlExOp7U-w7KJ8AWtpM8a6Fay1HoR1XyQbvKNMDXdPLCIftZMzNVMll69hwq8AR1I2BUpMXitqn-PAVXVmHJsKBssdC-z28QWIzPyZJ3jzBOfaV5x6iDa1ltjsGc3MZ_a9O36n1BYbbOqZEbhnE4vF_QB5tMOIK2TrlSZZWWdNRouUXgZl3w9_H3ed2eH_ktZ0ED4Mol4DFe2mJEdh6Cu1mBLSHEiHS1RphUdDEBNbxWdKDdHrOGh4ALfqwhpnKNw58CbUnoqjIYDlYMAHHMpUNzjN_L1wOwB4rQfCRDv5j4RaCQoSFGPk_sPUlmbMk0z_nNkgFHAQirslyPtwkaqu-H_G2FnAqkZkvfwxdcqQlLsx8p00ftEoPQq_mjZlngXI97ltjFIQBXpJJnQa6Lgp7eptzLUUGvpY7NO4x3hsQ7N9TtESHXLOgADHp5sp5hE16csiQ5erHWDKagD00iXyZfQ6r_kDLThVYW6Bj--zELZUS9KaS9wyRvdsnYggu8M3sXU77lnAfTY9srJcmZJ7S0TybYc5FCESYU6W-Vco--J_-dsUA8=w1298-h730-no"/>
@@ -82,9 +82,9 @@ The ground was still a bit frosty as the morning sun hadn't quite warmed the ear
 
 The forest was mostly silent save for a handful of birds one of which was a woodpecker (well appeared to be so from the distance), which was drilling into a tree bark high above us.
 
-<video of wood-pecker>
+<!-- <video of wood-pecker> -->
 
-##Río De las Vueltas
+## Río De las Vueltas
 
 
 A thin string of silvery streams cut through the plains below.
@@ -123,7 +123,7 @@ After we crossed over the hill ridge we returned to the shade of the forest and 
 
 <img src="https://lh3.googleusercontent.com/7zDXCyDasXzqlXGg6qY7pVjsm-3diMWNEZ9d6SIjNzY56CCqG1X0uZYJI8tR_58th7dMAv0LTecJx0FkM2xtMyOPrGY6PBPtQUSHwimhToH3U65PUBA8KchVr07N7onfeKtWP4bWLZhk6LO2HYPPNorxx-fVS4F7lsUSFho9rxwYGewXchMLC5QbTNRQQp-jytgkO_ACBRkUmLKl44aPI9uPWmtx1HHkTTYBzcG2ZLPHs0YaGeWhSRFj6Prm4HeLb0HocbVcgbflskqzGudp0NyaTz-Ft5Dbd4WMdIoDDHt2iQs0dJlVpPI2U0hbTk6hBXyBwIlvnDbJs41dt49AKE69zd9-dmkuA45KQuyMLuq94_3Fgwg6j-cP8diMfNmxvCu-jN6yW07IIX4VcYxaLa1uc0jm5wcIZy8J0AdFgTfYc0BDwUWXtiUMHmwERGfeQ6KqWl0Zg9ADvYrpMyftWz59rOTemXw_N9xrk-nsLSORON7anYz7hyXHsbnZ9EPWQqrh--zyLj1SOGMqIUP7xAZQEzzBsqn7yxNwSI6BZidU77zKW4Xx1PdT_jpclMwpXtMIQI_qtVh7sHBqOqdnqYP8Agld64RfsEAuadkT8qKCzM4TQg66LnkW1pfym3AGE0RLUY5yCCbZ27n04Mmu2yVVa3Rpdn_CmbQ=w1100-h730-no"/>
 
-##Laguna Capri
+## Laguna Capri
 
 After about 4 hours of trekking we finally reached our destination: Laguna Capri
 
@@ -138,7 +138,7 @@ We then proceeded to spend the next 30 minutes exploring the area for the best p
 
 <img src="https://lh3.googleusercontent.com/Qdyb-mnKMTrbkCsQc2skcUQ15wp4q_QI-zDcx9M-sPYoIWI3PyqYHytGger6CjLWnO049Z_asGdf--W8j2epgz6drQxeZee2I84XuFX1mxnG3jEnYFs27w05avn7ILUSlixkB4UyA19QIb4r-t6xI3em6QRKmItatHftcTT_dusEoH-IzJ3Md7I4n6pDq9WMLB75ymy8dMKc_Z8mtuTDFb67RHeLWdx4-uQz3DPum1LmQ5YnOF0D4ZerPq61UxJEMaVGu3p5MXa-0QwMfSJwLHIMYfP8khgNv3jghaGxZASUUUf8K2ZAA5lfmByYwb2rg9UhJgLOO1xTRe7RWWLdA2qVM_3qmpINagh__PF0JYu4J4FVIq0EWcfvW2OGpayTNBx6GZ3uXimaNlH7UYK2AN7Y2bYBIxL8gYMoWJh7gZDRBs4IhsC6pmf4Suq3RkuRlHIkCWqlQyKOqIKLGQGOdujzHlq-ZMRYCRFATaw3_QETgTk6wgYGTXps-T3qi4n5tW2w9hZ0SvbBngPGyvyJoAq677OTFEEL_mrJtaTlat7S9K-hKUjbfvqyBx1QzEYwVOmjKUxjo-f0Qlm6APvf_yfdIa7FjYFndC51rz7gEtUZ5o1ESnLKjf-_eKNFZwtvtDDPm4jx80D7Do4ziYsqoI5vlH-O4TFUtFU=w1100-h730-no"/>
 
-##The rush for the bus
+## The rush for the bus
 
 We then hastily made our way back to the El Chalten by retracing the route we took in. A more exciting route would have been available had it not been for our same-day return to El Calafete. But We'd taken a bit longer on this route than predicted so we made haste on the walk back passing the same scenery we'd seen in the morning trek-in.
 
@@ -148,8 +148,6 @@ Upon entering the El Chalten town you're greeted by large wooden scupltures cele
 
 <img src="https://lh3.googleusercontent.com/zuXLnOm8t3vTe0vMwsTOm46jZ2gt77AA8Lc4xE0PzbJ4YPI-VB-LWeuEyj2qhIXgFDlMZry3Zjn0DcXfZusQemNjlPdATfeAw4a2aifnIjmZ5w-A8wXnY9YAml0KEwDj-MLA_Crja9033MyF62uMo_ImdEO4iavNflFGsFWOMVGMzWDJCYY8dNLP3X3JCA8FbB1w2BUGEkR0gWtfCPJhVRX8pD1yNYOtytfh92WD7HOMfnQhYm8MKqEkhBucFi87zpxVBiBoyUDVFdP_ah4baktfLyz1jG9BuvyaAg70TvGU2aTs1oCBBS63hEgJzh1WdAzHZgtycyRGL-jIe0VOmK1p49MQayajcBb7uONd-2UCDsM0cM4QpMv3OIay2RsUS_MIxnbuq6m0PBuanWNFYP29mYo73dqeBdIpVYg-1Zr-gOVUIP1jbttxOIDz_olB11U8CSqBiBiAoGEFmF3U7b-QNIJY8N7aOuwqAp5-oZCQaD9_6r24Qpp8_pfL-Jd1L4NOcwilNsSnQhmZTkUGj3rHBRSsR0bLsFC2c-EEjIbIj3AQGk4bwDj9C8eIDcckQm1lfnKhEaENr-8_AXh68RkDF2mL82NFsI44jNF-VplbNuuXIk0r0cjM87wTRQ-VL33xiVSyJSoKiLeLR8FOOARqV_qlkqEfkLg=w1298-h730-no"/>
 
-<img src=""/>
-
 By the time we arrived in El Chalten, the sun and the exersion of the hike had warmed me to a sweaty state and in need of a shower. (The uniqlo heattech thermal innerwear was too effective at the end of a hike). We arrived about 40 minutes early and loitered about the bus terminal cafe which was very warm by this time.
 
 A metal condor greets travellers at the bus terminal.
@@ -158,12 +156,12 @@ A metal condor greets travellers at the bus terminal.
 
 <img src="https://lh3.googleusercontent.com/Qi4BcBBZwgMnFi9ooJfXyKZnNiq8-5_hpooknC1KQuuLFLaAXibjKc9XOE1IfXWEDNffIIKEc0bIkUgjjhRD_G53Ub1z_p5-i-RaCFtx0Gzc419Uy2gMI0tDJy1oCJv7-aA7XyshYA40_OHR9GhKgyTNUPjUuq7tPsxv7IQ_FfTq9xaChF73qk2aqbBYtjPp5X6p1vtTxhuOtZQYSDI2k7ff7XfL-l9tsOf2aU4VNwIMdwxsqBRDUX930dpHrCd-mNdrIP5PEi3XXtQYSevyJ1R9IgWZbusHzYk0sesbjDoEo_3LuMHOuQdYuic6je8_ZtIngGUw35OhOTAYp676MxQogDDhefNUTWkoRh0dhIPPo4GjUCiNMgH-jSXeC2blvYf_RaWrn24lfqTwrPrp3lipO4SF4wO6L88y6KPYnzeqF2hVKK-WVAsyGqZoQrgVzRnTrF5zhu-59LndUuSJle_2gLjKe6Bw3XKRqx7c61nAiSXsY4vb9aOs_4SnK5bLDBNt3kthKH_cXng6alWZGUnXfCznPNKhroEKQCrEqYNlJGgHcVVnI9s6KP8YnkTyiD2S0Mgs3djcu16LO95ldlLVfYcdqEAMR2bsrUh5tR01zor9L7fTy8uUuL2xzdH5UzWAC2vylArFTAP05KoPh0Q8NSfPl6tAHNw=w694-h390-no"/>
 
-##A Bus ride into the dusk
+## A Bus ride into the dusk
 <img src="https://lh3.googleusercontent.com/UjAQBzVN5smEP2Vv1QmNJPxBrbSsF5uovDlGoe3lwD9V24d2UqDYhjch95VJNMYsULfe7KCx_vth3qF7FajOeOSZxyyMYETxvU-gHarGPW-XLL799xkHkMWcO15ISHdVyfH_eVggo4l0YlUiTSTO_649Gp9iLLnYV1HN1X27kZPfpE_atXXjwrRVc2QiMathHzaPXEmJf2LdN47Eybb0PDqps5gaF1k_CLq-kPm0xF74T8yWdlhoIyV3w8VpLr7SUafL051Xu6lchgOmUOrVXcWhaGIqzDh5nLZ6Dew-InDBtUWY0WiKP9MvCyr9zLFgcsQBL8QpPWw_vxUhwyVs8pOhq2GjCN9IaylTvQEJUBtxvUMp6CqdTPBo20qCUUrAHBEs8opJyOJW6r2jTr5ibc2ICtkszpM_gwUrjPOI2ehyZy-G9IG3tbOrR6i_9ud3dIyNZ5ST_MXLF45hDf4qNGCzXwUmLHgWq6VnzHDhXBrxzcPDwCqK_Za2rQrbzrxZWMmuTRvbRdU835RBATBPmwrqh18_1KHCE-Nq37xQ7PFnK04FESsyY_fLMn_rdKJVfKsoslrOmC6Qb18Q5Idt7Fh8LGRYv-PDbviiib9684gMQBCBq4Czv6EFypaWrWTufj-VTTvPO2btDGVOxpwbdSL8WPROITEFjYI=w1298-h730-no"/>
 
 The bus departed on schedule and into the looming dusk. I quite hot and sweaty after the hike and was looking forward to nice shower at hotel.
 
-##Conclusion
+## Conclusion
 
 This was a hike that required a very moderate level of fitness and though there were more impressive hikes available in the El Chalten area you need to consider:
 

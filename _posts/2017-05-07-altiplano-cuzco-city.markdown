@@ -7,27 +7,27 @@ tags:
 - south-america
 ---
 
-##1st Day in the Inca Capital
+## 1st Day in the Inca Capital
 
 The cab dropped us off at the small hostel. The hostel was located near the old city centre and the cobbled stone roads made the walk down the narrow lane to the hotel bumpier than normal for our luggage.
 
 
-##Simple hotel
+## Simple hotel
 
 <img src="https://lh3.googleusercontent.com/ZAqbxeCnvqnOrxACQVAX_NZs-_tB9KkRBQYtE40j7Yel05GePa2vyqvOB1zmkTOs7ZDbmeynZO5-EU9VlF1W27SKIlaNI3cFSoGkzIoh4bv14ROoQhxY7egPON2Vv5YM-9fRIpYu6uhFuAuJ-4ycPtYRkEMQqmKZOTjBk6mIg7RcWuiEEmaHsctTDwQIHVYLKcldsM0UtwKgxFQnhtt0vIg8OLoeDT9SlfOViSoFt7rUI0hn9Ri9-CcAfnJJjWpMK0KThyAZeoPjqsefWa9Y18SrcQIafsU94Y8X0jAtXZ4ai6GMJldSsZOxFva4Oe_dChyzvsW5dspy9jb0ihhvfoGM3Vxw-PgRxLkPlse23wCrSWI-v_dcloDomDAVcvR3HIoXlSN0Strivy8PUTmTCrK28GM_UKlzon4pKzoQMvukbsnwCYBo7cOZ7-jjlWfwiZYLBcLSyRQjNnRCM-WtcEPr8A9J37Vp_qQU2pJknQb7taifBuPHIazeGmFG8k6J_mud-cHm4I0TdkTFklX250hpq2CGytQ-ifgbTw1ee67j4A54oXSMCrPEpkzOL2_OsxTwG4n0Wfxn5p777i1EEya6vVw46YKzQJF10pdIDAcT6w1gUMfid1sgX8WirjrjnGAiZyYj0BCsjIXo0GIRdU-6YFXHtlzersM=w548-h974-no"/>
 
 The hostel catered to backpacker travelers and had both dorms and small bedrooms with attached washrooms. We opted for the private bedrooms. It was a cheaper accommodation than our hotels of the past few days but acceptable for the one night we'd be staying in Cuzco city.
 
-##City centre
+## City centre
 
 The choice of hotel was more on location to sights of interest rather than comfort as we aimed to be within walking distance to most of the sights and avoid cab-use (more on this in the crime article).
 <iframe src="https://www.google.com/maps/d/embed?mid=15IY9O-4U_zeftrJpRhhdLlsARp0" width="640" height="480"></iframe>
 
-##Tour bookings
+## Tour bookings
 
 We booked a full-day Cuzco tour covering all the major sights outside Cuzco via the Hostel at very good price. It was a group tour but at the price of only 10USD per person it was a good deal and it could be entirely settled via the hostel. We also got a free tourist map of Cuzco from the hostel just incase we didn’t want to flash our mobile phones on a crowded street.
 
-##Walkabout
+## Walkabout
 
 We dropped off our bags at the room and headed out for a late lunch.
 
@@ -39,7 +39,7 @@ Rice seemed to be as popular as native quinoa in modern Peru. Peruvian cuisine h
 
 <img src="https://lh3.googleusercontent.com/19zPvvW9iO3FmR979S4WJMMnfsMEiXUlfKI-6Ly5daMKOcIl-VMcnnWZ9-dBukDPxBQy8qIauLa_Bys3snsJEnlxn4z74c8ACzGKrkTRqSLLpDdDwz-AOvJTZKQZfVtzpPbrj76HJFAJ_woinl8jc688RdLCoRnRhD-9sDW4tuuUmjQVK5RRiz_Pc-xOGD8gAtpbsR5vPblGJ17emQ_xtN43CaLNXDQ3N8465icqAcZ1RwFgi_O_W7d8ufeaNXfzB2CnCJpahuKpBMXVPBa6YYBpNo_iti9lqkmhK_uG7adKoupZxthEKteS1K8owlxLHsyM9n4f2hwS8t8AUCXAQFCayUME5_lUwhLe1lce4IeMFi75Pkw5IpRcKuzPJelKRw0-v2ioQcdX78uDA7MctaPCGWrBNe8Ya0U5nSDaJ8aWKaOpZq444W67_c_4ZTyPyxIjn9wUcWke72vCX2hhR2_H_sGAxPjXIYKaGLCOVDo9I7vscNQ4w1NXdQTGPPAfPlqptmAna5g5ULkc-pg3xKbbodBJGHzH390-o5c3kWb5-f16g7nisoD07W9zkpSSvBHESkJeZqyRJ-Re2qB8b_l1-goAfTHJJjEDSt2JpkTyfnjcnyP5F0w653wC72R6ixcFMp6pfSEGEpuw3bz-8iwOVskTw_HcSHE=w1732-h974-no"/>
 
-##The Plaza
+## The Plaza
 
 <img src="https://lh3.googleusercontent.com/5TBQFoeODdWGx17zLueKvi14MZjVZy0nz5u1tQJuc471fxO4hNzX896PZHzHmnn4T8zPp785tM85nQV_rHB8wh36aP7BYuzGyzBp062VvAvwPPnv10E9Q7IFVyDxtE3IlaUXSsn0Z6AAE9BXp7bavSu0WaMXAXsdim9oQinO6POoD-vUpFXSheL0ZBySADiVPJUaT45JLuulR1OfDlWCtFXOnqYVQj37k06LqInCHhdhSUfXU-48L9tXmBjJJtiu-83V0z2m_tBpmi8Obc3UwrRna-KRqPjx31dYeu3kuU1BN4kgAMi1xHYauuKIJvsamwxTqOKcStCFmrvcxeHLa4JggAnlZ8Bhn15VouhbimNiN-n7Jtld00mDNwy6VznZcAvyCl9aW3VWG_O7neo1-8IaRGILMhthXUdK4V5GochGgLZbavHaZy3onmE7iCGriqOd7Pp_KE6YxVB3KOeHWI0mJ_npkYZRLbRRxQ6EngE8ZUFpcunaniNAtgqiF5EgJSaUajLrepGOyZNHXw7OSSZjT35qOin3fY1TABzvfR-S8tmkn9-1SvSj6IZsUHzKNmvpnRFcVp5buEw6BSKKW5HgAYCzpuWZ5gBmkDGQ4MRXJtcM8V7CHXLk_4nsk3GCd-2R1bxYzFsEP3e5S8mN0gQK7xLuVWuQZUE=w731-h974-no"/>
 
@@ -54,13 +54,13 @@ Statue of the founding Inca emperor of Cuzco
 
 We started our walk from the city center, the plaza and then made our way along the Avenue of the Sun to Qurikancha , the Inca Temple of the Sun (now the site of the Monastery of St Domingo).
 
-##Qurikancha temple
+## Qurikancha temple
 
 <img src="https://lh3.googleusercontent.com/ZbP8pqwYOLZ9pVkoZpcSMPJhP26fK_iplccbPYDWJSz3BRLv-FCT17cAQm6h7guxWbTrgkYqlF63UJMuDYPHz3mKewy8D2o8RDRL3-9eeiRm3C6CQYInw77WkPcr2pU5FDHEL8H8o0A-ZFt0_hNg3tVKRPtUVeVTnhMfdO1j11UYkSSeAwHFL4lBrQsQxbvihljCtIN40huz9T-zeESfXaYWwuqeSE_tCt1L9k44T6b7s_8bnI0VIXUsbyQ1I0OAqAIAObHTSXSe9pMiOS8C7T6epr8Ob-Xn5bJtTItrU7dVaoKEHV5bUEmbgJR6kmWgmHCi8OsE_u7GkJ59c5Y9d32CnQjTKKVJemN8IrD4Xryr9j8cGPo64m795id78rr7B-CAQ58P_M6czISOgjRzse--rc0dk6zkT4hJs0daSwXVFdOMNIhpNcAeV-SCQLjV0jwIT5IfQAkdqWfTa6YKDrDWxWCRyYlb-U6cCTZrmiAxm_CsMg7h0jSovvuzGCNIlblrGMBhRvB5spSFrC8EW6in95DQ3xMPJVTjBRLJldJ661lyIfHUsw8AuNR_uXbVwgAy4uTWDth7fDsmxuw86yYTWcNwNC1_DwD6rp4RI2TKMkqXmSQ60k-q3m0i2bcU_c6XQh4gJiAJjBi2PrUiswgPXIejM9-C6Eg=w1467-h974-no"/>
 
 A composite of 2 completely different templates is what best describes this building. Originally one of the most important temples in the Inca empire, the Spanish used the foundations as the site of a grand Catholic monestary.
 
-<photo>
+<!-- <photo of site> -->
 
 As you approach the building you can notice the stark difference between the Spanish monastery above and the Inca foundations below.
 
@@ -81,7 +81,7 @@ You can actually see this laser-precision in other parts of Cuzco city, with man
 
 Later tour guides would insist they kept the highest quality masonry for religious buildings, military forts were rougher in build quality.
 
-##Inca artefacts
+## Inca artefacts
 
 <img src="https://lh3.googleusercontent.com/qThPiZ2IkhEl_9Djh2SQdofjjn4GmYW7MiLYWPPI0Ud60GNDMMFdVUQOp9eTNncGPOp2GmAnqx_cnL_BR00Vwm2jHW6-tyLLSNXWgbhCPVfKX30e5J_GDn9x-Z7MkWkOE60bqvELcRMYvGvbmrZRuOSdkscQCNwmciFmYDb_V_hFvmBV1Nz_iGZlHdcsq9-VdPGzabYQksRQgrLiOvJY7PYicCGks4xs-RbhcHLvCvKwKMOXsdU-MGObthuDDvnZwd2HW9o-7Ax7AtjUMq2-0ejxK_v9zhox0cP-BKQ9_rvvsnUtSKEii7qdH0Mlw2iwu7LUkeNT_l76pUmtpjC06OHgD-CyNL1gemZyb-1-wQE7nE9uWdDRVW5sbA22GDlsWkMXrWblKv9_4Og7ScNoP3GsPLR4RSUh9NNrRt4SR7XNslVj9D5JOsnpvrQQ-w2OyhHGndqv7hPVlUqBqifecaiSJx-SL2Ky5Eumc3zWEZ-SapUP90o8XzhHUb4R2jXgadMZZNE1OJS9khp8RpZbGOp6ePRpw2fEkOdFfhg-PfDgbuw2exMjEhuRbO0-gFJ6OppT-79KOMwTpvopE9mi8V0at65uea4d5sXyX-M3ZJAZAl3iFQ3rH6mZ5VqCzukq1E89Ta0h-ROMh0KKboBHPt62UGpQp7pkJvk=w1723-h974-no"/>
 
@@ -89,9 +89,9 @@ Apart from masonry other remnants of Inca culture remained in the form of murals
 
 The temple had plenty of exhibits in English describing the Astronomical significance of some the structures we saw.
 
-<Photo of stars>
+<!-- <Photo of stars> -->
 
-##Temple within a Temple
+## Temple within a Temple
 
 <img src="https://lh3.googleusercontent.com/5nsSF67q4sj6LaFLdXxDCOVGrO5Ebb0XHSF4Jiz0lQ66DCuK2pAmcos6hfRRlEgMjyt2NukvDjW5_vGUIJt9Ii7_NN9KMVlfguS2sTd5pSQ12z4lvq79tFoIT814_JNFFSchJUpLhvSrCdYLNUkFX14a7DtYa9LxPH4CPtM7THIo2VdWFs6S5pKAuR8UmqW-BuKN9iiDNopQMQnPCBVSUPXCBOx7AZTJCVTHE2n4Ds9PcJOWdyef9jEtUXDCgPJn-KxWkAgV7HNWjezx4UVOFxu5LyI7_pFBnLoP8ZywVlzgxKc1_H2fkm_HyoLnKtaVGn0-ZX0kQ2nekiR6ByiLgZSz4IgOfvjoY_Wk6TyA9g1PzV1Tt6m4WGM0S3Ik3cpKJT4jbB8BqTIA_4slZEft8WnFWtJMgqJKdOqUp3sWSl5v5RrOdIRMJgOwY5mZx5Wy8-VrRQa63CCSORJ110APpS2Prmjk9-WGnDkJxtGzV0cbha4eaOZRZ9ZwNRPaQfvRc9IDT7HQZhMf8yLvxofAH4_EU6kBXjqk9zvH1SDUI1zIZ-HO-euhaUCi5DuifBoDv3OHMmEYNew53V9_71uNJ3FGPF5UHi6d7pG-ioWe8rxL1Botj7qVkzOE1AjFLpZ9ue9TfkVd5OMPgKYmtvG1J6-6UZsVwxIGboQ=w1467-h974-no"/>
 
@@ -105,7 +105,7 @@ Tourists had an option of visiting the Monastery itself but it was getting dark 
 
 <img src="https://lh3.googleusercontent.com/Zs9jzbVsp-sA2LbL0b0IiFYfsTfCgLF1UW2dWK9cG5Q_Yg49lCZXuyTRVfbCoSQ9L5vCD3ZhslgXe2Y6E7RiRQkBLKw5GQgJF4Bi4p7ktO34W4mo6P2N1BJfwLzwbfj_--9SI5QlopOt2bwYzWw24nUD_966XOI8jGKDzV9EKHuT94vELyzk7Q_Tz_OpXuQ1RtzYQJnqnXMWhOPWSGOjJovKBTnuErKuIQTFWHyvVsYc6B1pQ_EYgGTbLg62OkuuUlDDuNpf8X6zgYUEnvI7XfKL7YN8RLK_mux6HNzrqexSRM0QYqLbvK8qIQtI20LmP5mzMC7GBHD3Cecx6aus-v0UyqrYqi-x97KzIrcggH2UQ7K_OkFwWw0OCHSJDgmFct9nfZOeC0BzqvLeC9pW4U5dATg704ENKgdB4s9OoI8xoUmmdWEsMDCQAyna9K9qqDPmIuiNxEuudl4uFjEYbSh2fZ9sH-MFX3ZDnLf2kWhrJA99kL3tV1reqd77sPsKEc9HVYUiqYr8fHDL52HyrMeeBdF0MHmy1FedPUx578wS2LuKh1Zhd_sgf7a1nxmo1oNBHXEpMuj-KhiWThH0WKPDB96z6DRKfvbUfxj9gjJr-w=w1723-h974-no"/>
 
-##Conclusion
+## Conclusion
 <img src="https://lh3.googleusercontent.com/tsWLFkeW6ro-CK6eeQycKSyoR-HJCl57pDBVSzNbb8KNYxAgM7WURQ7mDoPp2w2pvweZkVhiBrOyCHNZVrqe6CxK7XWpn2VjI3Jpt5KTodNTjShlHkVexx5ZFsjOFZdJARsv8XyzUYy8bs9Z2Hf6hd-9ZmTODquw3OvbI4c6rQhtm38qIupvc84QvhMMRcvlNZmRb2RODP46oHRWY6hDWaCtTPnEnzm7IM5VqPHcji_JphugBzmDKvjui5v5rYpzuakGOIX_EL4N37FGWXCLkGCwl55LJ5M-Ivi1V2Y7qcjTN8MmH7g372Vkls8BOd2gz1WynoGwh2rZmrMs8LwwwX9XCu90EPGp61p5GlkOZgaUEgOb2L6UFLJu--ncdrOf9IUpyfPt0kwknyxWCi48GmzSJQ7yqVpB3ErAtGfUfHuDvPtRzSpwuWIFdbt-qch9C39pvAIapww4s4wsCnaLoMDw2sWLrfVoJb6Hx2ENNvAxQrjLBzvDpsOgl_lFNSxWzkOp4hLM2Zs5uuGiJ75KvRFWkLPR4BZw-ZVmnEZB2W_d7aQe5BBxPi_y8thb7pMbTJVkI3XSMgHF2vhNA-9jZHOQ4MhaBYoaQYk3SI0h8ZhwpL6SojmoQTCiIf95Bsqiy0OhU2oR8I6ByUdHm6xISlSE1d9z4vx7cew=w1440-h317-no"/>
 
 There are many museums and Inca-era sights around the city though I thought Qurikancha to be one of the largest & finest examples of Inca craftsmanship in the City. No doubt there are larger and more impressive complexes outside the city (we'd cover a handful of them the following day), but this temple was by far the most accessible to us in the short time we had left on our 1st day (Thanks to the airline delays from La Paz). I thought it the best use of the time available.

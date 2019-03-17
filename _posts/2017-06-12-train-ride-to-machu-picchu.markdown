@@ -7,9 +7,9 @@ tags:
 - south-america
 ---
 
-##Ollantaytambo
+## Ollantaytambo
 
-<Map of route>
+<!-- <Map of route> -->
 
 We picked the hotel for several reasons: 
 
@@ -26,13 +26,13 @@ Hotel grounds"/>
 
 The dining area had minimal staff and they were particular on our seating at certain tables in the empty dining hall as they expected larger crowds of guests at the time. There were a few large European & American groups but I wouldn't categorize this as a busy hotel and the Machu Picchu season was just starting.
 
-<photo of Ollyantambo site>
+<!-- <photo of Ollyantambo site> -->
 
 The town had a major Inca structure built on the steep mountain that walled the city and you could see this impressive structure from the Hotel grounds.
 
 I hoped to visit the structure on the return journey from Machu Picchu if time (& energy) permitted.
 
-##Train to Machupicchu Pueblo
+## Train to Machupicchu Pueblo
 
 <img src="https://lh3.googleusercontent.com/2IOkTU9UvbOxTNShdXIDFuROF5uH5O1W0OLFUM8OG9EQhYAs9FUmK0gVu-MP2vHN5iZJ74JedtfDqsscNEUgNOgR7-h7DUmkPxHEgfaLllumSCWPFxMt8cENe85YQJ1JAFYqgQJ5Ag5xTBeX_zbFpXYrWPPwNPQT0THZw26AIRkwdrAZP1jj9BFHbbkOfvwKjczZWvGeUq0_qkYWE7U8mz8MAeFGrC_w9_ux7haa8bI986xzUGNCQz-IFFroB_d3rDzfjb15lWeIzDz4kZ7AmK2MaW1s9XnsFrrjY-8ncJIt9J3kq2kyVP3Ry4gN55YleCjhD_Lo3Qr3IpOxII3HH3MPSdMYBmO1ML-vfjbZm6ijlWRg9GaAccz-MdnJHXJVBNtc2PHBVDMBdt12nAlYboGhJHzd-pEYgPLzCbmhtveq4XrptxV402evCbhxSGeBpCFgLGYPoIZj45UGvr9nSemGgyix2Tzfo2omONPkKxxlovgUjVPp21zNJOd0R6nhyqs9wYnpNhESlXBlRRqCftnH3uV1rWy3zyCELUaNr0Iye-tywirETaFWY6PSfveOF_6am-GRhHIByqSQWVsuBg2oswBO31t-SNcUNsvVhBhIZz-v6PDdcHUEOyHSkfw1-Lue6ZSNd3HBHpRI1UOGbqpcXmoqMhFfMYw=w716-h954-no"/>
 
@@ -68,8 +68,7 @@ The scenery outside wasn't much to behold. The tracks ran in parallel to a river
 
 <img src="https://lh3.googleusercontent.com/yKuaIOTl0qtYTvBArmti9FtIB-cLUOM-tObEwVEYFwj6bqZDQT-gLn7s7R_ub4YjJhjXk5qV3L8oJu2uwQf-tejskqe4qZ6c7A0z3H5vKoZzeFq6ZNGV8sSsKmjMnQMFL7ug4j1o-b7_i9WGokyXdMgPWsCD9pJIBm0X13M5JZJt9GhVMY990Cs6KTUhFn0IwsS5p49ijDh3HeQuqBlq4D4K2Ho09hFMigYsbo7DU_eJKMTxeCRMbSaK5qA_D7KqNTDn8mAov1eho7aGuiW5IPy6MImUK5NCDOhkQH4nG6Ump9n0EJIgoNTq7VvrjECmiIouJMNhI0Ww4NSU5I36ptO_Pspah_0qHjCQvav4xSrXym5znnE_2MEtRtDzl_yJVmhxNOUnCHQYMrIcszTWrYNdVVq_yQH2fT2qWAyxscY2aJt1pU-v0fvgPiZAGYw5YyYakttn-RAhI79VW5Fe5PfB9dVQVW_g3ZmfBvbSmF8sSMiZZ25p0pAUXqTmTkz5wzN7fCInAemU5whCwoRItPWAeWSBTQ6YVpsCa-Jk2rzLDjmN1v0sWmje1UzDlUUmFdOIqGtvKvAzLfeiGJ5JE_TMKn6hWu8CqAaLP0QV0oHhzcQ-VjbJc8US4FcB0ZJ0kw-dxKFlTf0h5-2StL1abXQH7_owdPaxl4g=w950-h713-no"/>
 
-## 
-##Aguas Calientes
+## Aguas Calientes
 
 <img src="https://lh3.googleusercontent.com/aYnagHti53JKFAR9-iV-dTlTF3xKI_IC6VX1T4a8jhQTuRIPNrQkd1fgv8XsFFS3BZiup97808IAPC-cQKChnCoFWELR6wvP8EfE6TAAGbVx-M8lghoJn9Fh2iGYzSl3vqCGgQaPbqcNbHSmseggjyh7PXmsSogFcmatQK2lqOx0FkeDVFS2I-voYyBxuqrLDsZ06cXMWz9f2RKsZazTHvzoeZ3oipXuHm6vgT286daOiltH9nrz7WntVPIF8MV6wAVaahjtJe7X7YkuVFuQcZmHf8o9KuEscDkq18jVzYn_f0JpOm8QXi7pBO-71uDTMfOVL19q9eaD7hKxdPP-7qTUdxTH3wIxBSdDv1TizaQztBSsefVVSxcE-e94UGAiNpP7x32mLlVUVPiGf0VdYGWWIUVgCqPtwuQCsN7Vcy8txUmNhtMKpWBqCITu8N-pAsKiuEndWPjFTfHYGKq2DRcisFcfYGHJsDolHrA2hfIUIJjfi8qgpZ3lR38lj5x0VTwWbj7iyXJe3HByelO5S1Fhm0sOXy3ZTqnQCVrJNqeKeTiGn7vr_RxjCQdTnZNQ27vTuBQL--zkp0lXTjwf7QA5fWL2dmCiMnR70WsCCgPeITz9kUd-3afAvFK6TavDR3Qe4pRmPAUpQcZxxoP2CjA6DTLvbsV3V2c=w716-h954-no"/>
 
@@ -89,7 +88,7 @@ This town exploded in popularity after the 1911 discovery of Machu Picchu and th
 
 <img src="https://lh3.googleusercontent.com/q3tW-HQOFb21ebevwrFbJz9O1xXpBY8oinPW_Vy92wWF1WhesI8IMwx9sttV-dTzOen8k24soYWla0EnUIhpm9leQwtPurbv6sfFaL_rAJ6ANedmSDhNe-D5pmz7SoKip1oWCHF94O8pIJJE2Z97ImdnuwZ2X82zqcufhj2HEQZn4lXCeDmafiQcrib3qd1m3ipZF85DiytFTv87NlUeeONEUXTVDUJZrRnWV4C97Bw5iazpBNtbspU94VIoxTa98BykX3Uv2bxuRT9DCAGEVkgeW9hefNTug7Xkmm4WzI3BoxYCzXMaRQm-MoMH9G6rxRlSCQlVZn-frPc-ecbqhaVfy2xNdHF8fohcQ-_J9E7gXhcFeiSKsKje3MX63Wb0T0t3xr-uLQj-NucxuXH9Xvztjzqp0re4_AZOXOaCSt6a3IjE4S_2WxuJ0LIsl3TXkkqI7WzFydKMebsG15O3rIfkBr52F7in9f_TshNb_KYR6ZHHKDSrV_miNi95td6a5uWbUWZN4X7MqVUr4Kt1nhmZy7E0TjXuOt5aoEF5_maxJna5gJ1CLmWy6RDTFU3JLCe_9iRqtSfvBN7YK-mn4zjJ0N45LjuP-DUJ1eac7GK1DtykbjO15SS68lFnlUdpkPxwrOrib8RsHMbRuja_3cRSY9BE0LJ1IY4=w537-h954-no" alt="ornate lift"/>
 
-#Preparations
+# Preparations
 
 We checked into our comfortable (and rather ornate) hotel and planned our requirements for the following day:
 
@@ -108,6 +107,6 @@ The town itself didn't offer much in the form of attractions so after a brief wa
 
 <img src="https://lh3.googleusercontent.com/LeN6DBkq1QhKonCgga76sWesDKZ8z7KKnIIvsCwBpjyMl52Rqap96SC4SicJnRmwGM7h2taQS4Cwi6T-o1mXgFJHwqE_6ka4y8g7mY1xJeJw-knGxcK3xTpGW43TE4MMnof1jBIvXvDxPQgC7aaHhtMfNi8V_RAY11hMwQAcN63ZosvPBQsBAOSOtKbgKOwWk6laIUnRabMO-XzkGvMQHZrxm4Lzu9gkElAVPFJDXdqAXDTryLkaZdW42sm82kaHHoMHQ3BxodaZFo7zH5EMfU8GP1N4MP87Tn1bDr8RNqhCWnXJ0qT3R61qzlSLz2YE8982U3z7y5XO1xJ5COPXiAUBkdmwwV7MmBllye_tUgwCmjn-kUo0HZl6b8JNw2yFNhQXBpjIKU1EI5Ct1CdVBWLmmdcrZ9vdEm3D8cLiblsEz-aNQiZh-qmBby8G9FzKEgyqz4CPDP_e3Key75YdM2xIdkN2Vj8jyijf_7cz4Wn3rHS6vhO0eIuxTqD_X7g5yZw034cfmMNmqlGe8CnVD76MXzoqeapb5qsea5ecgA3htKphnPhFfbDpIs7VDZ6GpxFwA3AQ4UiDBdbcgRrE7hNmLHwZMwNOqTaB5byu43jnsut5FQ2GDtAm-RSZ8DxMYDn3ZCGCENrbUYlisnFeyCjXoQGFq3tMy0Q=w716-h954-no" alt="cliffs & sunset"/>
 
-##Conclusion
+## Conclusion
 
 The train is by far the most popular means of getting to the citadel for tourists (since the hiking trail is capped and no roads cut through the jungle and mountains), however if you're willing to spare more **cash** and **time** (and *be prepared to book really far in advance* if you're looking at the shortest 4-day hike), then the classic Inca trail would definitely provide more adventure (and discomfort for sure) than a simple point A to B train ride.However, I think the train ride was the most optimal option on such a whirlwind tour as mine.

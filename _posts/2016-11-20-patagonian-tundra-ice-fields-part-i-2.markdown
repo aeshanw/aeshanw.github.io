@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-##Getting there
+## Getting there
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1TI45EVwk3GHVdehopgEza14bsCQ" width="640" height="480"></iframe>
 
@@ -25,7 +25,7 @@ That said, for more adventurous souls who don’t mind lengthy bus rides Argenti
 
 After a quick rendezvous with my  travel companion (who's Singapore flight had just touched down that same night)  in *Buenos Aires*. We proceeded to the frosty south of Patagonia: *El Calafete*.
 
-##A Barren Landscape
+## A Barren Landscape
 
 <img src="https://lh3.googleusercontent.com/-Xzd6V3Ocb76H5RTwIJXmb35FBharko9qxc1bPsxnTYC8-azRViawbgzdz4azdxW_9OH7hCiR6KaiwW3XV1Ymlh_0bQiUVkdAHmObxEBkytI562CM9ONxY9ytpzpzTkkVtHZ1FrhLXaIToHTUEW-SOBHU5cOKfQTqxXPXvOOsytBYYKcgL8mqFyXAY1roVldCPg9gKiPurBrGBe4kScQiA47Qvb6vYRrmf8hyJz4XomDkjKG87vQvxveEGpvg3sH7gyvHOhWB5QtLooSquZseLrL3BtDeLfaYL92THZnRu_ia3_Pb0fYanUnhewTBVx0fPzHH3eRZpprtPV9BQ6NaK7aaP6zFPb0zThTXxOQn-_QTJ0zfhQMlfvik3XNzduMye2HJn806Q2P82U0fVKpeJLEvrAaYWSvf-9f4BNoRVqpCtA0ceyuOCO1-i6K5_35MxEKR_MjABXWDh6oqnyA0Rqtiux6m_1TlwZz_JQRyFBtlnn5b1WjxaC3eclHgOEvzTcg17NUl85wfXv3MpkWO01NmFvcZ5DGfnofWiQIijB5lgHUN2ZOz2_DU4SbFE0E-vcEW5dEJNH7IR3-m0i61WET0qCQfOgMqZvnxOVYkg=w1298-h730-no">
 
@@ -41,7 +41,7 @@ The town was sparsely laid out which seemed to correlate to it's small populatio
 
  After checking in to the hotel. We set about making some booking for some tours for the following day. We got some quotes from the hotel tour office and compared them against the tour offices in the town. The town tour offices gave the better rates and we're too far away from the hotel to be inconvenient.
 
-##Day1 : The Glaciarium
+## Day1 : The Glaciarium
 A recent attraction addition to the area, *The Glaciarium* was one of the first sights on my list (basically due to the fact the other sights needed more time and we had only half a day left). A free shuttle bus picks you up from the local Tourist department office. 
 
 <img src="https://lh3.googleusercontent.com/BTE39ori0bG1Yt4deDQ_fGEvB-Hx-A9N6op3ialm8hdhLp8ff-RCeKZHAaworlvTlTLKtaweMAc-Ugu7sOR1C36TRe2Sq33PukJA9OxYHOKHOs1JpemVoA0p-e61PLo-WcU3IeI1W-YxUIP1GK4kU7vwRn2zhgHh-EyTRWl1cDpOsJbyQ02vmc-0v9gfT5nUvn4pqJ43pfHPvWPdsc6fW66W2blmTirEJRDSFU9S1WhCgMF9QvtoZ-CvkI-4Ys6v5BeSLPgI8d_5A646qLCUIBsz3PsnkaJa0888lFTS_Tk4qGnFy8CEot2nlCOP1paWZLww9AAHwhE6xjU7bd1erESfw2UQaFo5v4Y07vVPRcRvckbh6PW5Bam-vL4_gR4LetVA0efN-KLOUnn_Idz7trJ1-yf9918DGZEgN5nOjsY5CJQhhAma6DIS_uyU7iv7Fanxo7MqPc6fHTDxaKzHJgXOn1hQZyaOV2n_ilXYahJB89C5Y7vv4irYtv-sCCcDGO-bUnQBJTcwLQwxHpZkLw5GYopb1yrBrILmxo9jUP3bZ77UskeXrkb0WFMNF-nDOztQI1m636W5aSXiUVr8azORMsuIm6x74bRDYXvzSA=w1299-h974-no" alt="the shuttle bus"/>

@@ -7,7 +7,7 @@ tags:
 - south-america
 ---
 
-##The Altiplaino
+## The Altiplaino
 
 The [Altiplano](https://en.wikipedia.org/wiki/Altiplano) was placed quite high of my list of must-visit places on this trip. Primarily as it held, in my opinion some of the greatest historical & natural attractions of the continent. 
 
@@ -24,13 +24,13 @@ The Altiplano itself is a dry windy place reaching altitudes that make every bre
 To counter this I had been given diamox pills by the travel clinic in Singapore (where I got many other things including vaccinations for Rabies, Tetanus , Hepatitis & Yellow Fever). I was advised to take half a pill twice a day and to start taking the pills a day before my ascent. I was warned they were diuretic which was to have complications later on.
 
 
-##The Atacama
+## The Atacama
 
 We'd taken [an overnight bus ride from Salta to San Pedro de Atacama](/2017/01/29/salta-gateway-to-the-altiplaino/) the next before and arrived in the hot & dusty mud-hut of a bus terminal sleepy and trying to figure out how best to get to the hotel. There wasn't an official taxi stand so we didn't have much of an alternative and agreed upon a price with a taxi driver of a somewhat beaten up car.
 
 The road to the hotel was nothing more than a dirt trail passing a small stream of water and what appeared to be mud-brick houses and stables.
 
-##Boutique Rustique
+## Boutique Rustique
 
 <img src="https://lh3.googleusercontent.com/cHLCqoAkwJMkE3hoOe1btk5KYUIpwhJjRup3CTBNbsGQCYy6y9sX1FY5a4mmue1Ge6hV1vGSZD2xCNMmfavDdY1Gnt168RtAB1wh-wrAWylfx5k2NfwPhxpw_7-DdgcnkwLFsADnZg1GGWwlEbg298zkA5F3yiui6duPxyAgMXxYg43m3U8Ua1tMUL0Vt0Y6al672aO0FaoIANvd0gOBtWEsd-Ure83h0cGci8hkdjPWjlmoeiU5OSBgmtTqCg_jKWAe1NezB6OmrLh2bgGLVuaYZSmYQWimp2CriMPcHE4t73zNDbUJ7NbDc4aGf6PhocTvGSGGpTnmZczxSfIOZ7Ex2XL_KwW3WRQx9lRONjZsEJY0XGYwOeQmH2_7kxsNjw5ym7IIzWYUAFZDX7gBTYapeQg13Dae9ilywyd6IsA93UXY4HycpfThRUMWlBjqDEi8CUfX8YSmkT4NNQJMZYG8Y1IolscN9uTwEKVXLMB06iG1_xffmpwSHmPbtOe1BV6XLoK6353NyuI3lSr1ZEkLU5YXYV8NevODKOwXBS_GWbaTuY-r4B_GpchFMPJ7yhvNcxKdWsIb-a6mS4KCHqhr6soFDil3CJ4exBaLTzJ4cvgjPT9M9njUTs2PlosQzqUIOtjP7IMBvil9lwDRcdCEUoIkdxHjH90=w1236-h695-no"/>
 
@@ -58,7 +58,7 @@ As we approached the front-desk hut we found the hotel manager (among other func
 
 <img src="https://lh3.googleusercontent.com/Ag6uIsHAH2dntovN8OIBDqJemD07NvYkdVY1qQ6swH0gxFVkbfyhgoDRIngt15FCKp11z1m3FkNc1qN9yTBhyuc0Fn1OPaVqmTp7Ur7l1xbgByjxX8xMIdXtnUrDH6-mjGA11E7Qe6eWO2tqGlyMj7dCJFD9MK1Sm-XnhejRMSloFJt5d41HOJADFBzyDbVrkl37tRKeevIJehEKjNZ5LDX7H3lGPz9nKAQEvXAGNyGJwe7cQ6Na9H4kTYqWa9HQ-LaRRoLhUJNU4ooip2qSJ5Bk7jleLFmoYJFM4MOpIm7no-H4X4TQKDHzmYI8LI9P5ME6JDRpGumiQfDU1IZBXupYv47pUVxQEIUz17H0WZi4NF92Fmekr25ySw7mQHqEFtMbDsQDsFBTiwf9a5iNjT0RYLYvkz6X3MuzFmjZRGAFJx4gtx8FwfwwYOLcMRm7Qc9AspyuTGwuNf32vo5Z1axQNMV4aI9ToEN07iK-PBnGxDsQ68fqnNLUHiGw4PObGDgkLYhWdcS67x_hAiugUNDt3JoQEVADlaTKat2AL9_3XXQguhDzu0WYBgE_jNKVNeXjMOF7D2pvx6Ei7JYyg1dKOOWeB4TnAtf0MqEvN-awY4bqhtThWVENBP7_Gl3Bub7N_vN9F8jy3Jn_zmeqHT2SlhP3Zluret0=w391-h695-no"/>
 
-##Walkabout town
+## Walkabout town
 
 <img src="https://lh3.googleusercontent.com/x4GLb2es9MSAs9VhCod4yqLr06W-25xZLLWvhfdElh52LZzQabnjdiOJFi2CCGFx8d3o7AAbCFEsyTjA1NgNYiyV5lXJ32f9UeiOBFG_2u4hjR5tAEcv_ApML94gQnbhNUW-U14Xuxanjwvwoz0GC35lUoTXTL_fg63w88xm2eGpS3l6B-LjneXQnfo4UiUE9q-tpsqSg43aOSvHc02skuZCIphR85OCQEe3BfYNv0RZrlnmgLziycF_tlpax4e2zk2bwC72_T1aoW33jcPnI7DPS_2G8k8vtAu0JsmGiX64JVoCKCVQNfc7_zcooeY89_8UCYv3qG5HSra-5H0pxHmZvY6J5o2M3LlKReIdsx6JlVG88NCO3n1uNGf5wCVFLx4YSIVQLFilPDVPbcjZOFAP51tO785g_7uQlkZ5dzdBjy0bdHS539XfcNpv48kX1EPIBLjTYrYbIFg66CoOI30fdgxuzV2GeXazMNFOs9-1-v2WbFXNs87jsy04iqtuC4l7mcLPPvR3GJE7zPxSUwI7o1AK_9VJfA2T27iwoUaipd4KK33n7ZoNnHpapQYI4lyoIPdCnCkyDVBYr3GXcyPJu5pa3lCmjTCZiZLPjOvk6kIPYclvRQI3-eac_nxW1JD9VJoKR0MpIkF72_mxUA4TXuh_5oAbmjg=w1236-h695-no"/>
 
@@ -70,10 +70,10 @@ We had some dinner in town and headed back to the hotel before the sunset. The t
 
 <img src="https://lh3.googleusercontent.com/07AF49o5lOBSkXiJRBsaVg_Awfeo0PBDz0ZHlBojnLEp9LPfFzV7H_39jk7NAiSS1kHruZBtkkxW_QKxNax-WYrc_alDPYYFnTSsl_9rZmKXRa9yUCU1D9r6RMYxcad5BfOHw-bpcuOlShVsN8EH5N9FhdWu45pZ898I576_xGJTbbAEL9JfymeFHSsqsI_1RNgbJRI2cXkSMrOPqWddSg1_50ugdhlVlvCK1xK3vFaJE6EuqJ6x5jpwu78p7QCLKaMLUmlH4kCO0FVwiCe3XpxGFdNEsAX-U6vsBRRQJ7BluYmMvaZZ_wg5Zcu0x2mQlM7EZty4uEeV8V393u6vocpYY5daatWcJ-zMn1Cvyjxn3rasghsk_2tGhW1r7apcoep-MnfHyzc4vSCeAWs9MKGWVlDGfkauEQojOkVlYzOezGhiHtEA9SIBrQnawh-iK9nV_khKTrfsSE3ZJABTaEON6CBOj2sOCgw5ToEvx1I65eLAIzRKrJ6HGKHE262ND18qKaTGU3EOM230qn98DFTOdakBrYOgurSqq446lNcW2RDIbsiKR5YJoos0_J8EUkLOUsekT3w47D90SyJ5ASiSk158BNM7XLPhcP57fO9f7W7jdsja--sTemNxe6Od3euw9ILKy1ouYBLoty7EK6xtpO1Y7zxUsG0=w391-h695-no"/>
 
-##Critters of the Night
+## Critters of the Night
 I walked into the reception to get a better WiFi signal only to encounter a floor filled with bugs of all types (from centipedes to ants to spiders & scorpions). I suspect they were attracted by either the light or the releative warmth of the building. I quickly made a hasty retreat to my room and escaped without a bite.
 
-##Astronomy
+## Astronomy
 
 The Astro tour was conducted in the small house which shared the same compound as the hotel. The guide was very knowledgeable amateur astronomer with a wide variety of expensive telescope kit. 
 
@@ -89,6 +89,6 @@ Unfortunately, Atacama had been unusually cloudy in the week of out visit. And t
 
 It was pitch dark that no photos could be taken at the venue (save for the headlamp on our host's head). 
 
-##Conclusion
+## Conclusion
 Although the star-gazing tour was a bit of a anti-climax, I'd advise travellers check the weather forecasts prior to booking the tour. The night sky above the desert can be quite remarkable (as we were to see in Bolivia) given the lack of light pollution. We just happened to be unlucky on this occasion. However, I'd probably not recommend staying at the rustic lodge alititud just because the astronomy tour is on-site. The manager was very helpful in organizing transport  but the hotel's novelty wears off fairly quick.
 

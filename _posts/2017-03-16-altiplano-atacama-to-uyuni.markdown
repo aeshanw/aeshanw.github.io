@@ -11,7 +11,7 @@ After we picked up our bags from the hotel front desk (The manager and one and o
 
 The car hurtled along the dark desert highway. The only lights outside being the stars above and the headlamps on the road. I then contemplated the arduous journey ahead between us and Salt Flats of Uyuni.
 
-##Planning the route
+## Planning the route
 <iframe src="https://www.google.com/maps/d/embed?mid=1RAASJGzMqm0xLIZFWYlkDJPJ9ak" width="640" height="480"></iframe>
 
 The original plan was to take the usual highway to from Argentina to Bolivia, but the Atacama detour complicated things. There would be more points of interest on the desert route but it also meant having less local transportation over the border. Calama had an airport but as it was domestic, a flight to Bolivia would require a long & expensive detour via the capital, Santiago in the South.
@@ -22,7 +22,7 @@ The land routes available between Atacama and Uyuni were limited to:
 	2. An overnight coach bus from Calama to Uyuni on the regular road
 
 
-###Option 1: The Desert Jeep
+### Option 1: The Desert Jeep
 <img src="http://travpacker.com/wp-content/uploads/atacama-to-bolivia-jeep-tour-768x512.jpg"/>
 A typical jeep used on the 3-day trip. [credits](http://travpacker.com/the-ultimate-guide-to-tours-in-san-pedro-de-atacama-chile/)
 
@@ -36,7 +36,7 @@ The jeep tour was geared towards tourists and although the prices seemed reasona
 
 We rejected this route on the grounds of time (only had 2 weeks remaining to cover the rest of our trip) and comfort.
 
-###Option 2: The infrequent bus
+### Option 2: The infrequent bus
 
 This left us with booking the very scarce coach bus to Uyuni. We were able to book online via [recorrido.cl](https://www.recorrido.cl/en), a Chilean bus booking site which even accepted PayPal! The only trouble was that the bus tickets were only released a week before the trip and the details on the bus schedule I'd obtained from various sources (forums to other bus sites) were sketchy at best. It would be tense few days while we waited for the tickets to become available (the backup plan was to hire a very expensive private car if the bus route failed). I'd observed the bus tickets being available on the Sunday a few weeks earlier and hoped that would be sufficient a guarantee that there would be a bus on the day we travelled.
 
@@ -61,7 +61,7 @@ The bus itself wasn't as plush as our bus from Argentina but reasonably comforta
 The bus didn't depart on-time but 30 minutes later we were on our way. There was a stop for a tourist to draw cash from an ATM, but apart from that it was relatively express till we reached the border in the first rays of morning.
 
 
-##Chilean Immigrations
+## Chilean Immigrations
 <img src="https://lh3.googleusercontent.com/x0eEbJPs9CyTMUGPgxMS4-lj0hel2ZYvh9t4aOU2V9cW4-vzJXi1MrHzCz6tutWkQ49DlU9iM8iQy-hNJIJHWy9slBkzxlrV84Gm4X1bjpgqrp60KRfdn81glTHD-k_qRH6VMQVJc1j6Sg-iK7omjzd45OoLz5NwVu_XSgfhjQm8XQxebtCwZIyFUd6HkeaOd9bZBHq6AvcC6UK4GXwZNc0Aurxzylj_yS_QqbFQYRai-4nCeAcsbvqMXZQKQFrAJ0paay7n3VEzJIsiBYwT23quGcn9sOGBjkcdajxjF515WCPIkOxGhVJ-7g4jbZTxQ8uyLq5jhGePyPJzutCzJ2iorG4EJjfzEHM-5pCfRHEqbyLM8PVbKF6RhKvQpioe7ufscnQLkLc_R8rXzz_LP9NBXGiJ5mMaCFJvajjxR3EprtnEgSfq_Jzu5RgpN1oR29paZAyDTQMhGjhjlN5JMVivav2L2BQp1ID2UFU-XWvH07IKJmL5L49fyloejES4TAUXW57yD9-hjgCruu4h58JiiD-T3r8IbiNyn_JBLsQGcYWrlMP5AuU-4iGFtdvTRJU9ho6EW-gqyBHOGi8Yzj_LQiuD90Q3-Ljh10uexbBC7UKcvev3jqfCogkCydhNjEgZZy8A8jwpUKw9kyYqW5u4Bg-Yjqp-skY=w1560-h878-no" alt="chilean border"/>
 
 <img src="https://lh3.googleusercontent.com/1EKdB_amhHcX1hB69hcPcCADhFJbC8lVarbXx6HFjOtPvdsvbq5WgKXGmNNeoaAhmMabKER6MXfCo_R9IjiKL-JUc8fPSCJtwbtFJfDyQxIoa0lSo4v3xmMBGrnPNHBo9WXSuk0yTmWZXfijaBuDGx6DBZCGfZF7cPleYhq_34jzZr9r_hJqNPLfNNOagqy-BrprWwnXTrsDL-EmN7hSLAcyIK3mnDc5HQVLhLkAqz3-pb9ZF9PnYp2afZd2CdfIYCakxH9b8KYfiuNKQLmqbWTtATf9PCgMCZ4QE1-RMabVznM6jjSv-LAzGGOY7YzrAMZcRbhfNAliLZqnvNgT-XoSiDnhM7zk8_fB4nglngIX22GeJ3xPwuZrI_rp-47N8had_zEHt5JOIWeS8JaaLmzABimw2ZlJ82lYpiH0M1D4Wla--Uy7dpqUk9WJwesVb4cSzym6GUJT7OXBEu0YffO1QYoD5nRm4XEtv8sLZZmLMx6kB7iiTuKzrxpMKYBneRBZxj2QPnD2nSiSTJRJMQg2FOSEIon5Hlk185YiGtIO4VVxKiYUQiH1HM_JZUkD8vfsaoTvqiipVHUuSc596vWcMk8H07HP2EempFHrVjsXlZITH6yDVwB1C8U7-LY3iL9eDPGZ3EPQpBHedgmOZJ8HI2zPeqh_BuI=w1560-h878-no"/>
@@ -70,7 +70,7 @@ The Chilean border was quite organized and didn't take much time (unless u forgo
 
 <img src="https://lh3.googleusercontent.com/w5yy9BMHMUgVErFuTgHzkTTDtpvohmBF09BpgjKaEtvFfID7aNU1WvtyQbMsuFlCmANh1tUflvQiRTeltSuPyGrJQMXhWfLJlJ1fLOwmoTnz673qxY6c9AwYNQ40rhI_v-6PtjhV_9oCG5sHraVJUcpbQfun2zljjhIaoBDKAPFhn2TfHWDMva2EfDQ1HYPyPV8xIx6D2REJGhODmiaEF31aP1yQT_-wJM0m0HtA_sK49OjBanO4V1amxTunn15s-ssnG_p6NFfPu7SjkCSb0RqxN6PG3LYbi8T8QqDsfRfjP_v0P2FBsQdudkj-u5xXbz8O13ATPOTOBzuqy0qxIhHFH854ZXjmNyYiq-FmvdEviZTx_0VOYY1pH8Cej3Qo9wwuUAXzyT4-jIbTOQTLHDFzOruIJFdr8PqEbVzQSHvmAmJ73D9PUhMSXzA9hrioR6B4wUh4wpxPNQNmmpQ1KZkNLvMbXa_HWTkYdqgBB05IylI5slpryL2ByOK28Hf63g9gszl81HlDzzCE9lMM2TRCedk3_3ieCfM8iXQcFmBJUi3Ii73HO41FZ8uzzr2NGzBnrdttLOAlR4FSvIokSoHthQkv0IXNVmD56mDeQIz6DdZGX4FGQxEVeHjS7y0H7GqCJulUKHvc9CZCsDnBUlMbIc5xG2H8ZlE=w548-h974-no"/>
 
-##A Chaotic Border
+## A Chaotic Border
 <img src="https://lh3.googleusercontent.com/SthGIwKENHdDbv1igj30dQXQOqsQraSBFid9DNjWYZxxcTVwVqV8Mv-kIzI6wnlv6o2VMD_iQmd8Q3KrE7cr6Ee7fgUDUC_B0ZuT8dThpRDd_VPP4a1HHRzKHa61qHRFArFcsH6EfGu7dpysZMsBgO3qMt9CQo3d5_6Ytk5u5rWL7Lk-wZaOa8Ieys6Ca4lfgR6JB2hrff94tXhNCgdNKRbMC0XMYnDLkK7HSdCXTdLN_u3ChW6e-usgXQiadw53Z6zXagKGGsg54nLdxurIp940_xKaYWnzpG9TrWgLSRnqYMrUJ-xLlBRhx7a6r8gvdoidsdOthILcCjhKRtBbKX92MjUCf8G5NJbXTABk0krRQspeb7FO7_SXe1CRp0A7-v07B4XW2ZJYqVVNLCXTmyfH9_HukvopIJf8mzRTL2sAtE6dDcyS5UvHv0gLMnYGkT13Z8hmiUPg9-auRnd9J61YwcIy8hFfBGKtZOrFuMYOIu9o12RHx-9PfvjwrybnxoJ6bXHumpg727vVXijg0uZm1XUfB17JyTgegiVsZwhsiY6-sBhKSu6X1e1ZsL2zjWRerXHWGcdDNg6y_3R_UX4y_sN9Koxjl3a4_D-Er06drF47dRxlm8axHnnBVYkG4M6pCfHbsIJ8Qa4r62_05q_lr8s6aMFFhe4=w1560-h878-no" alt="bolivian border"/>
 
 The Bolivian border consisted of a small house with 2 rooms and a big soldier with sunnies walking about the entrance. There was no queue and I likened it to a marketplace in which everyone was shouting and barging. The locals seemed to know what they were doing though the tourists were left stumped until the guard instructed them on the form to fill. There were insufficient forms, no instructions and it was quite evident that Bolivia didn't think this border warranted much investment for the handful of tourists that entered via this route (most of whom being low-budget backpackers). We managed to fill out our forms and got an audience from the one immigrations official in his office.
@@ -110,7 +110,7 @@ The taxi picked us up and took us away from the chaotic streets of Uyuni and int
 
 <img src="https://lh3.googleusercontent.com/e82S9wZQ87umQlOoa1i7hqy9Dd9SWeMnbP5hltT8-HO0NagkY_7caOGDUvRDscr49g6rVoss958VpK_w0VNBs1ey8uevuKQTG2VkeDR7Gf3piwij46HF8yIQKZXCIFY3Gpty_5apeXk64Y_eVyJHO52XxMlZMD7yHWe3O2ze6qq8HUNQO38AVxCw5F9qMpSe0P3KWJxMJDXwCKBqwHTYQ_Acjvo4c6kAFWk3vkNiCz0K_6G_LiEmaPBCJZq7677yU2zGiSk1CQ7MXtoWyIsjiK2xQ5AimCRA4uUTwkFesIBbbxj7EKmBLHz2lA9DpZH6uss-NuBDVbHDPlympk5FiwKFKvZbpOCz3-dZ3ua5ZU3hw_nnTc7pwW6X9XnIhbUSohUqnEH9HDgWHMzYABo8_FkbOLiWVSrkqZSPgvoTXdxP-BirEClS1zEDnjOES0w1zjIiSQQtoeTPX8wmR3giBMSskibOuCmPW4wNm63vGNNsyEKKc9kWbsJpdWEA-HqSaq2EUBNGJ4eGWLWUxMJqLxcxQSkQ1Ff5t5N9aKaLho9OgW-R1ZgRh8G_Q0lz7wPY5zXbeaO5RoJ9lGDHTD0I8CiB3C7RBUsAsBLJ-yVZeJmkniCBtfMf2mLVu_uhW5FmWdksjPxzQzeWP1RQA0qthwT2OI4Gg1-BL64=w1560-h878-no"/>
 
-##Salt Hotel
+## Salt Hotel
 The hotel was constructed out of blocks of Salt carved out of the Salt Flats. I'd heard of it online and wanted to experience it for myself.
 
 <img src="https://lh3.googleusercontent.com/7_FM3JR-M4x_VG5ov1HB2wCh9ddxb_rkSgPbcmDb6Azqs8a8w2WsTEajlcivJfdmhfs-2BHlH3xJVhjM6VvzPni5W6_UHaZgQRe3UaId87m3aS7GS0YvEd7W3HWLvJ138ieekbP-toO78wuhoDOqq2OZ7-lkSchmlWN-j8R7fktfp_sA9ru8iYhrVI9Ruv6YdN3Opa6n21kFNJ1U8fplDAOdwu8-SwZJOB_owdXPWbwuja1N9BF_NsL-lKpj3m1OxZmOFHhj2_Zrkt0ES92OYWY9TxIk7HhKSuOC7wb8csKnv4c40z8ZPNErkyZkuUrXUgNLc2sDIcIZ3Qrx744DxucKR6Xc5kPXuO7iNJoWS8q9KWKWRwkna_X2dlibSpriO6yoax2SuAQDwGOVAPgrHpn4KM7-lkF1z1Zosiz2xVQ73exr0ey66uw_cmvkZa14Gbfk1R_gxmFhd_Lb_Bl2juTVJZ43g4J2Qag1eGhofZA6KJinPlDcnbmzD5rygjBYq_iesEyXN_ySdoowGerv16VQnrVDo-Xgg-Ebc1d78I_dYEZRaEQ5Aee0reH31oHO3HSrilv0SocOEL-6xUQN93E4ejhsX8AJma4FEOuIen0ZrlnNzWRz8-pQDKWVYxhAVBkt4N99tiwIMPSdn3bnHngiKgYWZvyKUzE=w548-h974-no"/>
@@ -139,6 +139,6 @@ The hotel kept a basket of coca leaves and hot-water handy for guests in the lob
 
 <img src="https://lh3.googleusercontent.com/Ia7xF1PuaZB_ovdpdMEBTPf_ymuNKPeNkPrPs6NLjoHFSzabG_9dB7kSt0Fx0In6ZJeQx98GN02Pk7547eoMZEMiffJcJlZN2O-IMp8tlAhr0015212J5UV05DM5mhYZ1SmhTFyklQCKn4ivhcRTnfItuArFuxyPf-Ys1nqwM7STB7y_uA5Yi5dICQznep_M0bqMxnyXoFXAyoz1_RusHcQPqr92y91jnmJDhFilzKGOIFQfav8vFXbXRRRAFJmC-Ks0Ne3_F6ZQ4VoPj2SOM9CTzpIAk5qjxeS65QlbwLr6HQN7KRwfyglhaFk_OlKCG7nslUiLWPdk_4UMURkL4KqCJj-5wBlWJtpetrbxvjJ5gG6CQGivu3zF_ZRdAkgAOajah7loQhQFc23o6SVaEX68XJT46XgbF41WRePxMMqIgaUvgINMgQPCl6J6KlNxBZU4dj5OZUZ09fc3WvtP28BoGud1C_lj7co4wP5gG4Xtu2vRxgR8IbEP8Lk0DQjqH8ckIwR6WBiSmKS23NEG2AKsDR-VPFslFdxjL6YcA28AHHZz-0ElYKN4AZq6ncT_mvQO0fd39SDIRDbHSAjAXEPw3ZUHkarxNkBNK8cgSOC0kdSav_3xeWPtcIFZPWf2IOg_T_nI-D-_LwbQzol6W5noTwUQ8Fjka_c=w548-h974-no"/>
 
-##Conclusion
+## Conclusion
 
 The crossing of the Atacama into Uyuni was neither scenic nor comfortable. But was by far the cheapest and fastest means of making the entry into Uyuni. More adventurous souls with more time to burn would probably prefer the more leisurely (albeit more touristy-prices) jeep tour and I did meet travellers further on who did take that route.  The bus route was probably an even bigger logistical challenge than the jeep as the jeep tour was more frequent and there are plenty of operators available online, where as the bus runs at most twice a week, and the bus schedules were non-existent such that travellers have just here-say on forums to plan their routes in the weeks beforehand (had we missed that bus we'd be in a complicated situation indeed). This was one of the instances on this trip that made it such a touch-n-go affair. It's most definitely not a stress-free affair.

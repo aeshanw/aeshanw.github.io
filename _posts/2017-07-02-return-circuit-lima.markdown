@@ -47,8 +47,6 @@ We reached the airport on-time but the flight itself was not as accurately on ti
 
 ## Road option
 
-<Map of windy road option>
-
 <img src="https://lh3.googleusercontent.com/BXxGwzPUXzastMfZn-qM-dvQZo7BJWs2_oHDTlUnsLXyHFrccQZEgqVeVoCybq0nxrNchsPsPg8SUHLBhXNGGiN_iew3Ni5p-D0EdZBhG72kgKCm9zqgJXIl9jF1NM7giYBk8C_qgdHU2z6WCrF2ROrbWSzoIChgUl6-AA1mKjfoWMYqpPMKHvCRSV1Tgd132-JNmOy1Gg6-avBYnj8T5yWy3gqhziGJwpnAfCtvezvq5SfrJ9XshAJzFM3DJBU_fqQ2a27dSHn7KSa9wDM-KRIH2xv59SFQZKHNwf9a1wTkRyA8Loq1g_T7Si-w1qQY5FP6QYE_TwP2iN8f8R9K809mMEgPQJXTTA5EbeTQE7XAsARnL8aW5Pisb7V3euBrmzmSfdXDYG3ahYb6YFvJnLzLiMJxr74RUsNOwy0RALIj4_cB4egrap7UPz-xnHb5H165WPSc1_bFc0OwbbTskMOerCbxhF3vz49dN-fVeSD0b8I36b9axsHpo5J94EZOMt0-XB5-hPAZBEn-kwKXkTyCput4R1IZxoV35GczYbPihm46Rl5zOB7QSAwbs-jVH8hXMzMJUc9-KhLCzOqtZDn7csnZOyZGCF3OojdSf3qSRbP8CICErnWK3p_AduzUxVoff0dFQUpuyrJPkDCfAqtD4KYydHz5x5c=w1732-h974-no" alt="windy road"/>
 
 <iframe src="https://www.google.com/maps/d/embed?mid=1uPPgrwFCkwC0sWqzNiV86ckQkc0" width="640" height="480"></iframe>
@@ -60,8 +58,6 @@ Some tourists might suggest the winding road through the Andes down to Lima on t
 Lima is the capital of Peru and originally [founded by the Spanish conquistadors](https://en.wikipedia.org/wiki/Lima) in 1535.
 
 It being a coastal city was well known for both its seafood fusion dishes and given its unusual climatic features, its often white overcast skies.
-
-<photo of sky>
 
 We headed straight to our hotel, a more luxurious one compared to the past few nights. Lima was next to La Paz in terms of crime-risk cities on my trip accordingly to the lonely planet guide I had consulted when planning. It has improved a great deal since the crime peak of the 1980s but was still city in which visitors were to be wary of 'express kidnapping' taxis and muggings after dark in certain quarters. I had looked up the 'safer' areas within proximity of the sites of interest in Lima.
 
@@ -108,7 +104,7 @@ Most of the pottery appeared to be drinking vessels, many of which depicting hum
 
 <img src="https://lh3.googleusercontent.com/KpNioR1LRNeDxLI9HrDBR8zi4mUQo9-d24w_HzAy5z-EleBtliCFD6y4NzjKmlAAQhz61_dqDePTqC_oz1vPrIm1ae4OxqJn0rUrFjlX-Nq40O_y1KoXkD2G3twh2CAVcAF-hCS7yQ6x4dEKbKntEBXt50xTT2YNYbeiqK-0jctWFH9ucwEWIUMHkARqFsnA2itspe0p9CifOmerL4-DBdCR8aEtB1V5OWkOxOkR86Il2OTUhur78RFsB46MI3P_NriDtbCFuiyJcHbjPvxGb7h72_9z-k_Rh2jt2RNefUVJQTwC0gfrjCeeLR-br4RCU7YAkpNBWDVDs3NRXDUUtbx8eQEp2sil3w5TQ3uayEBI0Siwkjdu1y0d5YAXN5qeg5TR_Wn0VKEYJg_6uhwuSR0f1oVeL6mgaFhPIYmO8PBFoCzMvsOKJBEHZYeOh1a5hS7K0hjNaggojmY3Hw1MMcXQUrSgl46swFhxUIONvLhYgHHnlS569cTWldkvxU7458l1oKyKHuURMhIE-cDaFP75zF3qdM3uBL5wUYgesamNZ2us5p3NRhwZj4MUPIqiFKMwzqgKn385dEJ5XCbP7HqMr9MyGOIOpFVKPZpce7lgbZLPVyTIRaOxvyoY8tWA2QWlgqNsyIC37Qx4nGdRTlrbtJB-lTdnfSA=s974-no"/>
 
-## #Metalwork
+### Metalwork
 
 <img src="https://lh3.googleusercontent.com/83_KMKwoEBUPlDGy_2tRy9SPNQf3YcWsvkpKSZa8Ua05PRXURph1D2pACbtqz6mkEj438kNkuovZdQCLHbjhqdQMa8Qp3Hr3vQCHV4PWNaOStMGVBC6ioivzwBARCnFCaf-ASGl9z6lyVqWPj_8XcRB1YQSypFIGzdTpzC-8vchElV7KfzVl2WBk9HahX6Codb6-on0lznhmUk4ZjXvz6cJV8b6Er5_pk_3UOglfhKpGcr0DKOhhBv21rA3vE5zuaW3oGki7DATcqYMjg1aVhxCetSvwOv5Fel4RNWoh3QFulNc0vyLhr0kc2hShFOnLCO1VhK1cNj1wWf-jF3hWCpgxwmDtRded9T-RyEiGYg1jQhcNHkTgTEUlgm8W908B8FM8LaZqb6gLGWgywD1W_wK3SPWqGr4zrV5bnvNEa5sSDuYu5QHeLcl2HP1UGcTpzjwof-IzktBoYfvFcflV4GDuWpWGJ1c_ted1xqCoTzfH3wa36GK_VorK6frCqG_9fWcWf9uPyfEaKZogT4rPhms61T9oAzlGU9GqVnPFSRwiC9hK_opJn0WNMrAug8VsSfc_cmXgwr-m3OR-f0FrTgXhbtc0CRGpoN6-zwQv_pO6b_L5-rfD32l62gYg_aIXpEtOIZRrasE4j3CEcHzl7TJR8FZsk9y5eZw=w731-h974-no"/>
 
@@ -128,7 +124,7 @@ Unlike other civilizations these metals were less a form of monetary value and m
 
 The Spaniards apparently had to melt down a greater volume of these artworks to gain the weight of bullion they required due to this use of thin metal sheets.
 
-## #Other collections
+### Other collections
 
 The museum also houses the somewhat controversial but immensely popular [collection of 
 pre-Columbian erotica](https://www.lonelyplanet.com/peru/lima/attractions/museo-larco/a/poi-sig/1165281/363412) in a separate gallery. Visitors were recommended to explore it though we had neither the time nor the inclination so joined the taxi queue and in the gathering dusk we headed back to the hotel.

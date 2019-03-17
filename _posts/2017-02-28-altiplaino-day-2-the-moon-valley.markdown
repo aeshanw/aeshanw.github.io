@@ -6,7 +6,7 @@ tags:
 - south-america
 ---
 
-##Lazy start to the day
+## Lazy start to the day
 
 <img src="https://lh3.googleusercontent.com/daaxply56hZBxCicHQVAf-4D49C8a0hUQyT11-PNiwNGs0XgdSn2UfqrfMGglQtJ8uYec9eBiazIKlvyPGr-JpPU91HW82aBAFcIrgdz3IHwa-VK2xTMVgkAkJPtfe75TrR9GJNa9ISGb_ew_Mf5RikVQiITQmKmxe0D-KGrXIpZPYDOgU-SPIQWGoMdo-Fdadg7v22nMZWNN7ifDx4t4KdAGIXLItZZ7vhRviBT5Wh3mhE7UL5WmCaoSjhqiic_Hf1VkG8Ynx-ZVUWNv94Gn1xp2SOqRng43dJq3-LHGf9KdWhC_um-3eIJcYqZRnbQKHtfCB6pEDPt_zyzPFOLfXLb-PmLitQEuhm4brv0jFMOxHwOLwFF7ZYwu1fIsJIGokUUqJAxQwowEcSW9QY262eZ2Bh5TR0JEEuRaD9vX4BrWVuY42taitX2prbhETfEJLuYPuETZYMfOqG1g08RawsUz-ybxpIja2_yKaG1Uqx56pUNqkw7uHtNazecuzsjhRPJEEf64i6onUra3_3ELwEAPGUNnRk-W4LH5toJkuQUGkKclmYBFaoYwGbJ1VM0BIE3DbS1QGIcEF-1GdJz4sQAclMXhad_VREIRnapDiep1q-fKadxRWegF1l3a2pi4-h_rWeSlfKBNxHZTemVC73ag79orFg-PX0=w1392-h306-no"/>
 
@@ -14,7 +14,7 @@ After breakfast we strolled about the empty hotel compound taking in the sheer d
 
 I had planned to squeeze in another tour prior to the *Valle de la Luna* (which started at 2pm). But decided against it given the distances we had to cover. Instead I chose to organize the transportation for tonight to Calama (our entry point into Bolivia). I settled on an airport shuttle which would take us to Calama airport but we'd need a taxi to the city (there was a huge cost saving by this disjoint route). The tour would end by sunset and we'd be in the hotel by 7pm by which time the shuttle would pick us up. This wouldn't be the first time I'd be juggling with multiple transport hops.
 
-##Pisco sour
+## Pisco sour
 
 I'd had a Pisco sour in Argentina but I'd wanted to try to try this brandy cocktail (native to Peru & Chile) on home ground. We got our chance at a lunch spot in town and it was quite satisfactory.
 
@@ -28,7 +28,7 @@ All the streets in San Pedro de Atacama were sandy and fairly wide giving the lo
 
 We then headed to the tour office to await our pickup.
 
-##The Desert Tour
+## The Desert Tour
 
 <img src="https://lh3.googleusercontent.com/4v3lnKXAsLdRXmE9y61S4QlxxgLV5oEDwUTAxu6sARxZcpXPQdWgDUB3-C9-KWdvNHVxUQI2MW9i6UdmOxe50We8BAPcShU7XxXlqglhavSzqVCKuf-B4ScWJIP9T_V6LdPu8Uo2YuOAxfbFUFfCdl3gT6pRouMVTyF0my16ICCHkmUFy0UlpHCdPsUknHehiKFK8U6DJdEi7I51IXNBiR-Q3k7ETSjkcyLK6bD0QguJrXNCwtdEjSNk7MauKXZwdW8EeexG2BAzjD8qgA8p7tte2gYfwjGVrQUMTRdMtoBn3oLIAfXrBmcPSJ_mDq9y_CDnXEA5ScN1jOc6rzH_loiac5avtHPQ825KL6BPoHSaqy-mOZJmk3GZUcZuR9a8U84tLJjk9vxz7aWA5O6Jv_lXw74Fk9CNvdUX4_pedtsA456vCn-DEij9sTqFijlmOcYM5pOn6g7UhHaXuAgI-4IYc6wbKXxsg5RUIbctd0k7aQ1Y5IYELD756hALl6mz2G1ZhPNQWVNCtO_2iaKUCFTshotpDFAN-IJ0DBO6rXEcqeKKXlNeI3AqJdLGeIFvcLVEpVqIhwW8inQ0lXobMnLV1iT6qUAgaYKUGKLV6jt7zYCWzzuGX0TWTiNbnkZpUrCI5Ifh-a4xwGRI8QPv5JCa3_FiFBSUbP4=w1307-h739-no"/>
 
@@ -38,7 +38,7 @@ The minibus was operated by a very humorous Chilean guide who spoke English flue
 
 After collecting park entry tickets from the park office we proceeded to our first stop.
 
-##Lunar Landscape
+## Lunar Landscape
 
 <img src="https://lh3.googleusercontent.com/Ke28h7vW_gGNEqn9sK97CjElVMbXoIxGc5NiA7anXIyfeie8qHglKgwrS6dB1iAqBq_kRU3dn0HZsFqiPWTlNBqmAOr2XUFaNykGLStz0Xgbeb5u7tQhNl2tiNj6EOdXm9qRk6Z4rWuXtWP_0ndKKTCTyWyo95WIw7z6CYyzenZx6p1ybgJTcC5q7QrqJQIxj6oNP0P_vuZMhshjKZ5dYjPavTLnYMJmwuIoVJBNxI5X95m5NK2q-dJSRmRxE0U1pYN33MOAlkHUFcwTmJRiWsKccE4e3C8ueW-dD7JJD1cGMq4cATLfzkVAB3Fl9To7YObPIwVQ1IKKMNrn6dAzPIlPgHEIVcocTLN62XQhelg66Bumby5gC2hjMQ4y0AC8uupy4Cb5muN5f3HChKinU0iAnAMxvsvrjiefjSUn2gW2Sbr8r7YYvJHIdJqNVzwXBZD6G62dip5GYeGQpyE0HszRbB37sxD8FLDZaTtaZWVDxBYaCB4rwoM-DDNEELQdWoJV96lCuP0jHJACr0JLO4VogAvLdfNb2lNgLxvcTSxSYinOjF-wsZuK2Ez6XC2qT8Oyc0ESZU8U__X8uQX3VBQRMw3FItSFkV0CjBIpfs8f_FCdjXE5PS0F2mX5rOv84J-YWloxp_SLBREnI-JmWWC6z91VTvJgZ9o=w1307-h739-no"/>
 
@@ -66,7 +66,7 @@ One of the first things I noticed on the cliff was the strong gale-force winds t
 
 This combined with the overcast weather meant that rather than a burning hell we had earlier envisaged, we were frozen by cold howling winds.
 
-##The Dune Run
+## The Dune Run
 
 <img src="https://lh3.googleusercontent.com/KDgz9mKFv9LXaWaN2AcRtddHvlBYKCxiCMsJFZZZ3s4TtlxAdjzLaAvEzrjvl3QkRJFo-FfU1OINN_-jEMGDi_2zB16O-FRlIWWRYs_3KGDayD4IWaTCnv_2_yK_ZhDdNAQU6pqGbQKSq4YWhurCfUAaRzKiEQR5Kcyatv_4paXdXu9ocvL5FzUNJH8rHE4XOMrybnKrvitAUTJotTvoUgUIL3orbbseFU4YsUq_-PkcJYDbZ2AD_nzjz1PdapTmvbTpwTXbfhWsQi7KIaj8bWP6InBIno-Mh4XY8l7IKS1zGZ3Nxa7AeEIr3RJes7VTV662KS8Cr_i9AXnnGcygcm2zwxUUVgtBn7WtJWxr5LZ4T9MAQbHUf0gPMNrC3Lw4_vAqyAT3pt_jofsViHHvDvhHnUiAYK1k_inycD7BwTE-A3RUJo4G2XKyemKDGIIGaaYyub5xaHUbApR-DDTdqLwdddoORDFl8VHrqmIdRgHiMTbr3R0G0V0WmALJps7FY1EmD58f1plA85HReKzrEmQDd8CIflD93IEmbSlId_Ec2tDbIS5HX6H3kAt_c41xTT0yMbqN6srSVM5H1FNt5BQM6T9yVM4eak1EPWABp50Z-6nOfoOu5cWL2neawU3eDhm7CsQ8OvL6diXzdbwIGpFgUKEH8pBhahM=w694-h392-no"/>
 
@@ -101,11 +101,11 @@ My co-traveler got stuck mid-way down the hill due to a combination of steep inc
 
 <img src="https://lh3.googleusercontent.com/XlCMLBga5RzFNupu_iDO6Vti5IwlRI130xfg0YWa9-c8L920RX4gTW-9qdXjabUkrVMfJZT5Y6aWU6O1MCT9L6INOL97ufPr5-aW5dJ64DVIMbx9MvG0fe5KC0EZQNfvjSU0O5wEGQXooaLT30hHplItCV_gv0IiIbnGNe8Z1DFacn-4p4sVpU9okyvpyBHrESF0C5RU5OqHVBeQhAQBXw36r8kSK83efxn5dCstl_FWyeMEPPu1xgl5BNWO4hlj1PlJjCMTDeUdOdkBShvAsuzNs3wB7VoMYgom5uAo_eWm-tq2CFKnNayYwI1zVf8DjFH95s3aFoWlHNY4F47Kh76GmhpZZfO0Upfqw2Umuyd2bI49YFdVjBsUgHT4f3ORcW1775Dz7pVXtf1KTN9pLgSeVNCMLSdKReRcNyaF9hAbfhNoxbS09HLZhdsZoJL8t83pNk4sBsOI4pR4IxUpSZ7RK_QfHuvcBBc-gO4BOLXRHW1bttij6EPuRAed33CKyELKgRY9_piu6K8WmdCxyuF3bbK4HP-yCvqldcpYSWN3qw-HMUQ2q_cqdxE042eq8b6q12Iu9XspH60Pdlj9kjCEktsXs5EnC2gqNXklcwTkLbkbBpLEWzqTibKcFWTKC7Vpol0D7vi70WDoLJTD5mPlY6k1YqdDbow=w1316-h740-no"/>
 
-##Salt pools
+## Salt pools
 
 We made a quick stop by some dried salt pools. These were formed naturally by action of the little rain that fell in this region combined with the rock salt to form pools of salt crystals.
 
-<salt pools>
+<!-- <salt pools> -->
 
 <img src="https://lh3.googleusercontent.com/S51Fg06QNpSPHJZUu1X6Y0qsOLej7otsBvOQ0gWqufeWStPFqPVeVCsn8YH7zsDwGD_b6-1hpmxMET2e8PIh_Lol7h6aFIaIe0rnSqIoVqp_kNhXGCz0eXLQdzXBSm_5wiFztBz8zkSNU4nnYj0VniZq2-eGmL1SawsUrbh29JZyYI6q4z48mWBzrdfN60wtJ86e_XqkaHirj4zw7TNZqf5UZDb0eKpUTU7jZije0YZ-oB5EWnpxao2GrghZ97ooxAu5sJjOpcTqvP8CHxdfCnjMiQbxdUZWOL5Xd6ADJLafoXDTRuK4Qw-nlVhDPGOsOLk4AcoSEMcA0f6icIYF1JI7Ubljnick4ai0H86WJsi3C3vcnCi_SkDj_WCqzsvFZkzDazb-z4G7BNYj0DglASxUMnt2mKlp3f9Qn3WGbQJ8yXC5e63g7lL8kZisqDan_MFXGPF9EonDHY3cZAfX8AtR9bTnK-Dszq4Qm7F71h-9fIAi_ZjgC_a7u5cpdCz7ZX1REHViSmmBKelP-huGhLrzR0zAfqzZy6n_19tZ-CQU0d6VWfI29T4sHD0afGjOytfKMBjF4ebhAOjFduCDl4SgnxBauIpMdXoex_MJf6VnRLQ8vl0AN-E9XKTer0JLPHFtAszsurA21by_4EMogntOa3gzmpoHex8=w694-h392-no"/>
 
@@ -113,7 +113,7 @@ The guide noted the destruction caused by careless tourists in the form of deep 
 
 <img src="https://lh3.googleusercontent.com/QiHieEDS1DiE30vHB3bZ2XHmnDUE6b0ss9AVXcP7cF-5AMuKbwFnsXKbTQyTKRgL-HbB2uT6YAJ8Stu-NuWJ9T0g-VdCr96kvc_lilfkq6M_4z92tc61THVAnup_4b-rnF1m1wXqsrGbqlJEZ9-ytnt8mTTGBqrnms_TUg6si0_OUmktvOUi_rZ60ujUv7p3TkkK2WDqi60QHtT1o9ea1gdD_1pvlMhGguqRaviEt0NTOxIqmmA4m5lkBJaTCXGs0QkncP12OmAL_FR-7f7St-dl9eR2N-rMFzuGmaSzYaDLj-BZYwrDLLeIW7z5GDrHm-OCtmn03IH28yBQwIvEp7z3R5CgyUiw5O4umZ2NNz4CDBd1pVYmWecOMiYY1FSsQSppT6yV9ZqAcWevRsSCtnvgkuv-tjcbPEVqMFZf_DCPHk5YzBInJMz6HpCyJt_MFvLTCaykrivfP5G3ooI5jQN3mWnbt0k5qh9mfbSnLmRtiFdVKSuX9VGjoXiddSNPzhLQshUvUf_8VdrWW1wTkZg030Q9dAMWqoUZbXS2UVidu_dGQMVXzHDH-NmpeMgIgw6ntLiM4WQ39fgYHaX7gaVjmI6Jz0uB3P9RaVjIe6_LFkyaNy9mGQDiQLBf-U8txi9poFfBfXXStwY0V-QoJEFRHUyAWVFaRJw=w1316-h740-no"/>
 
-##Salt Caverns
+## Salt Caverns
 
 <img src="https://lh3.googleusercontent.com/7B1qqjnD9eejxUc17MEIErW2u-CeR5lG8NdSrEQRb5pjTfH2io5VLx8OdeUQntVbdw3kI4_8s8pnJjIMxfNlfRcsRnLM20T51O3JCBLFYoGNjdxHLYSp3WtsBaHpC2bfJueeuTDSniTDJNh1UlhdFxIOp9B6NEkr5vv0UHjTACIYtdYtKzqNudunXYr6azTeBSnueO7gy8FFN98AcnKxUqgSm4IFDZBkYOgDOUtvHrEGzJN2lKtlYMnSKNO_7YxoWluceaf4HmUeB6r5ekZ98tg5a9TJHBOniqAY0SR1FLHZ3E7r8ycAixl6y7Dj8wWEvfLbBlSi0UlIaRqddSELfM7KaV06Bwdkrazb85gz9us01PJDHy5dUa-ZovKChZqsoJbimTG3ZCUCqbMv_o7bIAwo40qKLyjE0e8-HJLsSKcBmwQFzENnvgPyh9mh_3KIhe5o8LJNQmFBvhEXgHCPEGobAAbNohUlP1bnwjwlFT9uCOnpR2xQf0LHrJz-7NDDP174ynoH9SOYrllr9Co_UFyrPxpKmbFsG2lQR5tZtOWTulJLzqmgGcolUvvplFr7Mp0QdszAj50obxNjrGV8w4XVJ9adWb0mTafyAKfuxXdU3kPtf-D3jzQ8zUfFF3PFeYL26AVt12n-G_mvrdN64Mf-D885xVl1pAQ=w1316-h740-no"/>
 
@@ -147,7 +147,7 @@ As we exited the caves and scampered up the rocky boulders to reach what appeare
 
 <img src="https://lh3.googleusercontent.com/vEIXJ9uOCT76wUctO_afXaYcioRQkNlL7VQGWpP3Dld6BsLjHNguMHTn1uuvNkQEybo7pCZRtAYxNZb4B3UzIk5swRBzJqiNMjYSzrK-FSfkP41-6QQV_F3Wgj__ylVDBFJrEOOx_DNQIHUrIPpefy5dPDmv1FN2Kx22Y0T6rHZu1qasWxlzHTtJsvrcqT59IFYM1LuGIX3odAwL5me8KPUWOBANblgRT4zqXTpGlh-LmCK_2KAx3hxXY8snif1zf6Cmbuv4AVZfQQUNAILCJM3Rbpo9fGKQQPC9bGEMyDyl3T2L7vofC30weGpHS62xhZsFxvLagCbuThJjsl9OrTnvHf8EHtnMBx7Ra20Lbwt6PJfXWHGxGb6Ldhjhj2E46xMznepTr-8ZtLeQqu-Vom4cgakNqNDvma5_YMclOh7P_mrsenWfKlAm6c2jjT-ywdm1DTim6Q4Z0npQoAFivU9Y9X-sprY24r9toIJ_mfkEguxlzk59bqkXx4e--QLaEyVzPlb5maMCBE27BgmEfn0EjqnjxMbJhOKNkow9u0CUDonH5bRQGiCeZ88uLfhRRQduvmVW8IMbqGqMvAXs5BQjd8UgnehQBZtYRBR007SxNE1epoOM5pTG_ia54dMpo5ST8Fz0y-V2sd5Q_wBzGAYT9rEeInvTyEI=w417-h740-no"/>
 
-##Salt Mines
+## Salt Mines
 
 <img src="https://lh3.googleusercontent.com/NOzKm3SiJRH7vm1w3WklG5eGND9NrCoP0UzFgtd04pnapENKWXnBBu4IBm2Pv2zfJxzrG6yr1qSLg90qfRtgk9ot3SklkJq3KHXlzX3WoA1sgvABc0uESV2AFmCKZ6sXekPDppm9uCeeN6lRdINDYgxA147i0HipjKFL7cJF8al7w7TwLfVkCq1snIQs9Ct_LukGhjzdVkQLxelch0k9GOEhJTt3mlfOyJWY99cOlqmmdck0OFASpJTp4rnCgIGXc9_fY10EOYQVF7SRn_Mou1p5K-JQNz-pQQ0BfPf6FSKKeBdTvzDwVcpBArq3fwtj6vG-AFzgmOk9TYnjazHi5CfNhAymP3CFmfFAvh_WcMXLecMikAR33jB0s2Y4edrb8jxPKgnGiY9MR7KAFm8TKRmxvBvwcVagGvd6cTbl752lLpjBvpUGgP66OGJeNg08tA0Uojx1UR9aOtLENGesB9TvhrrDj6RN8rlefplWpqHUOTQwXGDkgp1Jpbkfxus3D9F7n8GLynvbiqXDXUjxJbu-Luit7jltXqvjUWWCdEJkfltU1EdWrMGIgfIl1r6WW5E3PR7q4MSGNFMZp53ZobFdXlOaaY_a6pjADJumlSa_wuY8jXTwgxXITSpo5j61SdsweyvVjBbjOVgnNdG-xPMvvpubgWhuPAI=w694-h392-no"/>
 
@@ -172,7 +172,7 @@ According to the guide, Salt mining became difficult in the Pinochet-era due to 
 
 <img src="https://lh3.googleusercontent.com/RxuPouGX_0CyUzjBLhPjYCa0iqiuLdbr7rifmB3IwLJf9xATKDgtNtzUrU8L23wWWoM3Rc79yQIqWiwiGgzX2W7aaP9SulWwclkM-QbfiQf1fhXlgf6zQzHVqQpidzWMUDSx4JQmFy_WTvF0A5mGn2tDQzDUaF116qkl2q4vvvVKdymYSHkt7Z4Bbg00vPG_2cGXU8kKfojn41L-hI8qv_fOjm6Z79dW9CP9JXHgosh2SX0UfCjRCn6WOrNKSZMphDVFoiT7mqgiyM7vi7x1bTyjgndF2_BKoqbFB-Pocme6T04MRzadfhbBhx_OQDg_PUyxJAg7NGZpqucCe-xhkbOuBxbLVU3DifG0sYtDcKm6vnFulZLDFzdMSarK-ffjfDyEoI0Twcpio6yzc6jhJjse3mihvalkdik1-U_nxRAbXuCnGov1D_BygIceFBzEMNQm7Mim-uOQNnXfOVQ29G838q2d3dWNYHKDq0-eKt6mO0Iz8ijbsL3_h6Krf3uLqypr_x1WmfYC8v3PwM4Qx8XQ8ejQXNszoaG7IPtNAk4SYpsaICjBJoB_bzHyHO0xXlbQ6M_JqKaetSa1OcD-TurD3mZEPDXNfxx4-m_z2jbLzigxZBa9vjZnKFJAoGmcsZgWpT-uHCjsdIjbWU0EzA-YM3LDfYBZH5E=w591-h334-no"/>
 
-##Fiery Sunset
+## Fiery Sunset
 
 <img src="https://lh3.googleusercontent.com/L64MGwhLgElhhtvCxd-bh_BohFqXqqLD4hMroB8L7Z7yLRm3s8zemRxpTjWrWmmB0brjQ4TZ5YI_AKH606tVtQp1cKjWdD4fk6eLAYq_i9mNzYrNw3IlgbDN-X_3YByznzreiXbgf-tWKPAaRYfdfifxNsCl_Qq_N7wP28nFWEXMtGndN44ig4UuChsrnpB5WXv6NcQ9nkzYHoODFgzoe0_HDaVoxdek45UifGuKk46kBHp1GGxb6u4_UDySF6ahlMXzHDE5vGsmdO747hx1QDsbfUSTgmlROX4wplKqm6rZojmRkE34fRVp-CfwEpRwJDykCTtl1lPuYUndKZuuDdu2MIaRyfJzKliLRRBdJOczZwh1WDhTWKiVRiWMaN0_3kJsOap8GnkLvPRWStkagHJSlAqfEvBEmTAhobY75chGy-7F01Wz6c_VzyB6EVOFF262H-4UdMXt0MVDdhW950De6XUvOHfSuYD0TE8YBqqQInNRj-7bt9vsnr4OqtVAf9PaTZXN41zHhQAFQo3XUrjMcwUsn51msPusRHJ8A_WRkxGL0IHfGxsqzj4Lr503d3WXE1HLPCMMTfzbOioe-PAzcCWdpWBolnOzchfALVETIzfpaLxW7re9zpgLjXdFctbTHkHezgetQNDYqjP9jIegtA82fJ461lI=w1392-h306-no"/>
 
@@ -190,6 +190,6 @@ We then sat down to wait it out for the sun to set. Within 30 minutes we were pr
 
 As the darkness started to envelop the area, the guide quickly ushered us down to the minibus (the path was not lit). As the minibus hurtled into the falling dusk we settled down in our dusty clothes and rested before the next commute onwards to Calama.
 
-##Conclusion
+## Conclusion
 
 The Vale de la Luna tour was probably the most value-for-money guided tour I had on the Altiplaino in terms of the number of places visited, Quality of the guide, Operational efficiency and overall cost. The Choice of tour company is critical in the overall experience and can find optimal cost-to-value options via the tripadvisor ratings online. My only regret was to have to cram so many things on one day (including the onward journey to Calama on that very night).
