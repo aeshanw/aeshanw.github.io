@@ -3,8 +3,7 @@ layout: default
 comments: false
 ---
 <div class="post">
-
-  <header class="post-header">
+  <div class="post-header">
     <h1 class="post-title">{{ page.title }}</h1>
     {% if page.tags.size > 0  %}
       <span>[
@@ -20,7 +19,7 @@ comments: false
           <span class="post-category post-category-{{ tag }}">{{ tag }}</span>
         {% endfor %}
     </p>
-  </header>
+</div>
 
   <article class="post-content">
     {{ content }}

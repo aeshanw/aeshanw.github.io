@@ -6,12 +6,9 @@
   <body>
 
     <div id="layout">
-        <div class="header">
-            <h1 class="brand-title">{{ site.title }}</h1>
-            {% if site.description %}
-                <h2 class="brand-tagline">{{ site.description }}</h2>
-            {% endif %}
-        </div>
+        {% if page.image %}
+            <header style="background-image: url({{page.image}})"></header>
+        {% endif %}
         <div class="content pure-g">
             <div class="pure-u-5-5">
                 {{ content }}

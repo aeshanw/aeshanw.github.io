@@ -27,12 +27,25 @@ h3 {
     padding: 0;
 }
 
-.header {
-    text-align: center;
+.header::after{
+        text-align: center;
     top: auto;
     padding: 3em 3em;
-    background-color: darkgoldenrod;
 }
+
+header{
+    height: 65vh;
+    min-height: 180px;
+    position: relative;
+    display: table;
+    width: 100%;
+    margin-bottom: 5rem;
+    text-align: center;
+    background: #222 no-repeat center center;
+    background-size: cover;
+    overflow: hidden;
+}
+
 .sidebar {
     background: rgb(61, 79, 93);
     color: #fff;
@@ -93,7 +106,7 @@ h3 {
     padding-bottom: 2em;
 }
 .post-title {
-    font-size: 2em;
+    font-size: 3em;
     color: #222;
     margin-bottom: 0.2em;
 }
