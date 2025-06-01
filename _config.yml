@@ -2,7 +2,7 @@
 title: Arquebuz.com
 description: A collection of travel notes
 baseurl: "" # the subpath of your site, e.g. /blog/
-url: "https://www.areqbuz.com" # the base hostname & protocol for your site
+url: "https://www.arquebuz.com" # the base hostname & protocol for your site
 twitter_username: twitterusername
 github_username:  githubusername
 
